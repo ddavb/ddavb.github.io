@@ -23,4 +23,7 @@ Desde el punto de vista de la nave alienígena:
 
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
+# a ver 
+
+...
 
