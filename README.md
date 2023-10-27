@@ -17,4 +17,6 @@ Desde el otro punto de vista:
 
 https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png
 
+<span>![</span><span>Aquí la descripción de la imagen por si no carga</span><span>]</span><span>(</span><span>https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png</span><span>)</span>
+
 
