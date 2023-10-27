@@ -13,10 +13,6 @@ Desde el otro punto de vista:
 - Le corrijo, este iba a venir a enseñarnos Markdown y/o un blog en _post PAges gitarretohub Latex html
 - ¡Pues deprisa que se le esta olvidando lo poco que sabe!
 
-![For real bro](/../master/_images/idea2.png)
-
-https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png
-
-<span>![</span><span>Aquí la descripción de la imagen por si no carga</span><span>]</span><span>(</span><span>https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png</span><span>)</span>
+![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
 
