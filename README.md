@@ -14,3 +14,7 @@ Desde el otro punto de vista:
 - ¡Pues deprisa que se le esta olvidando lo poco que sabe!
 
 ![For real bro](/../main/images/idea2.png)
+
+https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png
+
+https://raw.githubusercontent.com/parzibyte/WaterPy/master/assets/ImagenV1.png
