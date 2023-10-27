@@ -1,7 +1,14 @@
 # ddavb.github.io
 
-yep adrus, hay alguna forma de convertir latex a jekyll? (tengo entendido que jekyll (html?) se utiliza para escribir posts en githubpages, aunque me estoy haciendo el lio posiblemente)
+## yep adrus
 
-nada es por curiosidad, para ver si podría hacer algo con mis apuntes de latex en git hub, o hacerme algún blog con alguna parte de mi codigo latex
+hay alguna forma de convertir **latex** a *html* ->> posts en githubpages ?
 
-PD: el resto de cosas en mi repositorio creo que son plantillas de cosas que quería probar
+- oh Dios mío mientras escribo me están abduciendooooo (que es este cosquilleo en la epidermis? en toda todita toda la epidermis, también en la nariz, TAMBIÉN EN LA NARIZ). ¡Achuuss! Vaya, me he librado!
+
+Desde el otro punto de vista:
+- ingeniero (extraterrestre) Qwerqwewwww, debes solucionar este fallo de una vez o no podremos contratar un globo y que nos traigan rollitos de primavera a la nave
+- jefe Wwwestupido, ...
+- Qué
+- Le corrijo, este iba a venir a enseñarnos Markdown y/o un blog en _post PAges gitarretohub Latex html
+- ¡Pues deprisa que se le esta olvidando lo poco que sabe!
