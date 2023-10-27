@@ -4,13 +4,12 @@
 
 pendiente
 - convertir **latex** a *html* por si hago algún "post" (githubpages)
-- takitekatuka tuketatuka
 
-> oh Dios mío mientras escribo me están abduciendooooo (que es este cosquilleo en la epidermis? en toda todita toda la epidermis, también en la nariz, TAMBIÉN EN LA NARIZ). ¡Achuuss! Vaya, me he librado!
+> oh Dios mío mientras escribo me están abduciendooooo(takitekatuka tuketatuka)ooooo (que es este cosquilleo en la epidermis? en toda todita toda la epidermis, también en la nariz, TAMBIÉN EN LA NARIZ). ¡Achuuss! Vaya, me he librado!
 
 Desde el punto de vista de la nave alienígena:
 
-> ingeniero (extraterrestre) Qwerqwewwww junior, debes solucionar este fallo de una vez, o no podremos recibir los rollitos de primavera
+> ingeniero (extraterrestre) Qwerqwewwww junior, debes solucionar este fallo técnico en nuestro abductor, o no podremos recibir los rollitos de primavera de la tierra
 
 > jefe Wwwestupido master, ...
 
@@ -18,7 +17,9 @@ Desde el punto de vista de la nave alienígena:
 
 > Ese repartidor viene después. El chico de ahora venía a enseñarnos Markdown y/o hacer un blog y _post en PAges tocando el gitarretohub Latex html
 
-> ¡Pues deprisa que se le esta olvidando lo poco que sabe!
+> Ah, pues ... arreglalo and then commit changes, we can eat his tasty brain
+
+> that's nautghty
 
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
