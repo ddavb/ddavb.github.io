@@ -13,8 +13,7 @@ Desde el otro punto de vista:
 - Le corrijo, este iba a venir a enseñarnos Markdown y/o un blog en _post PAges gitarretohub Latex html
 - ¡Pues deprisa que se le esta olvidando lo poco que sabe!
 
-![For real bro](/../main/images/idea2.png)
+![For real bro](/ddavb.github.io/master/_images/idea2.png)
 
 https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png
 
-https://raw.githubusercontent.com/parzibyte/WaterPy/master/assets/ImagenV1.png
