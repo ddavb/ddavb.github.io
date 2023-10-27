@@ -4,14 +4,19 @@
 
 hay alguna forma de convertir **latex** a *html* ->> posts en githubpages ?
 
-- oh Dios mío mientras escribo me están abduciendooooo (que es este cosquilleo en la epidermis? en toda todita toda la epidermis, también en la nariz, TAMBIÉN EN LA NARIZ). ¡Achuuss! Vaya, me he librado!
+> oh Dios mío mientras escribo me están abduciendooooo (que es este cosquilleo en la epidermis? en toda todita toda la epidermis, también en la nariz, TAMBIÉN EN LA NARIZ). ¡Achuuss! Vaya, me he librado!
 
-Desde el otro punto de vista:
-- ingeniero (extraterrestre) Qwerqwewwww, debes solucionar este fallo de una vez o no podremos contratar un globo y que nos traigan rollitos de primavera a la nave
-- jefe Wwwestupido, ...
-- Qué
-- Le corrijo, este iba a venir a enseñarnos Markdown y/o un blog en _post PAges gitarretohub Latex html
-- ¡Pues deprisa que se le esta olvidando lo poco que sabe!
+Desde el punto de vista de la nave alienígena:
+
+> ingeniero (extraterrestre) Qwerqwewwww junior, debes solucionar este fallo de una vez, o no podremos recibir los rollitos de primavera
+
+> jefe Wwwestupido master, ...
+
+> Qué
+
+> Ese repartidor viene después. El chico de ahora venía a enseñarnos Markdown y/o hacer un blog y _post en PAges tocando el gitarretohub Latex html
+
+> ¡Pues deprisa que se le esta olvidando lo poco que sabe!
 
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
