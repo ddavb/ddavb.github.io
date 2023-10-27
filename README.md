@@ -2,7 +2,9 @@
 
 ## yep adrus
 
-hay alguna forma de convertir **latex** a *html* ->> posts en githubpages ?
+pendiente
+- convertir **latex** a *html* por si hago algún "post" (githubpages)
+- takitekatuka tuketatuka
 
 > oh Dios mío mientras escribo me están abduciendooooo (que es este cosquilleo en la epidermis? en toda todita toda la epidermis, también en la nariz, TAMBIÉN EN LA NARIZ). ¡Achuuss! Vaya, me he librado!
 
