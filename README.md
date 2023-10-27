@@ -19,7 +19,7 @@ Desde el punto de vista de la nave alienígena:
 
 > Ah, pues ... arreglalo and then commit changes, we can eat his tasty brain
 
-> that's nautghty
+> that's naughty
 
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
