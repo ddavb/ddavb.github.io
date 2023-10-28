@@ -54,3 +54,5 @@ Son seres tan distintos a nosotros que el mestizaje sería la auténtica revoluc
 Eran vagos, con poca concentración, no tenían el sentido del tacto y a veces morían por mala suerte. Pero de nuevo, los que morían así en cierta forma era veneficioso para el resto.
 
 Hasta ahora lo más inverosímil había ocurrido en favor de ellos. ¿Podrán arrebatarnos la Tierra? Lo veremos o no próximaMENTE
+
+![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ipc_mensual.png)
