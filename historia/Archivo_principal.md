@@ -1,6 +1,7 @@
 # RELATET
 
-- [Cap.4](##Cap4-Conspiraciones)
+- [RELATET](#RELATET)
+  - [Cap.4](##Cap4-Conspiraciones)
 
 ## Cap. 1: cap.1
 
