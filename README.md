@@ -49,9 +49,7 @@ Sí, es inverosímil, pero existe.
 
 Este caso hipotético sirve para explicar la situación de los alienígenas, que tenian intención de arrebatarnos la Tierra. Desde su existencia, todos los sucesos evolutivos, de desarrollo de conocimientos se debía a la suerte. Habían consegido organizar una sociedad prospera, debido a la suerte; desarrollar tecnología puntera sin hacer experimentos y sin dedicar tiempo y recursos a la inverstigación, pura suerte; hacer un viaje interespacial sin problemas y llegar a la Tierra.
 
-Son seres tan distintos a nosotros que el mestizaje sería la auténtica revolución evolutiva. Hasta en eso tenían suerte.
-
-Eran vagos, con poca concentración, no tenían el sentido del tacto y a veces morían por mala suerte. Pero de nuevo, los que morían así en cierta forma era veneficioso para el resto.
+Son seres tan distintos a nosotros que el mestizaje sería la auténtica revolución evolutiva. Hasta en eso tenían suerte. Tenía la mente de una mosca pero con una especie de telequinesis y lectura de mentes ajenas. Pero eran vagos, teían poca concentración, no tenían el sentido del tacto y a veces morían por mala suerte. Pero de nuevo, los que morían así en cierta forma era veneficioso para el resto.
 
 Hasta ahora lo más inverosímil había ocurrido en favor de ellos. ¿Podrán arrebatarnos la Tierra? Lo veremos o no próximaMENTE
 
@@ -69,4 +67,8 @@ También tenían el problema de distorsionar los recuerdos. Y eso se traduce en 
 ¿Por qué siempre que se predice un eclipse, éste se cumple? ¿No será que lso eclipses los provoca la mente?
 El hombre del tiempo se ha equivocado y me a tocado ir con la chaqueta en la mano por la calle
 
-Y bueno, lógicamente esto era droga pura para los extraterrestres, que descubrían or primera vez a una especie evolucionada, con grandes capacidades, pero que ésta no atinaba en la inverosimilitud de la buena suerte colectiva. Los humanos estaban ganando y los alienígenas experimentaban decepción
+Y bueno, lógicamente esto era droga pura para los extraterrestres, que descubrían or primera vez a una especie evolucionada, con grandes capacidades, pero que ésta no atinaba en la inverosimilitud de la buena suerte colectiva. Los humanos estaban ganando a los alienígenas
+
+## Cap 5: El contacto
+
+Tristemente en esta historia, al leer la mente de los humanos, los alienígenas se contagiaron es de una especie de meritocracia. Ante la ineptitud de estos a afrontar cualquier problema habiendo hecho un diagnóstico, o tener una mínima idea de la consecuencia de los actos, estos murieron al desviar su nave al Sol. Nunca se pudo realizar el mestizage de estas dos especies. Y los humanos ni almacenaron correctamente la información verídica de los sucesos, ni lo recordaron correctamente
