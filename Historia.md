@@ -1,5 +1,6 @@
 Un personaje normal en un bar, comenta las últimas noticias sobre
-guerras politicas en algún lugar. Al quedarse sin más ideas:
+guerras politicas en algún lugar.
+Al quedarse sin más ideas, ocurre lo siguiente:
 
 Pensamiento en mentalés:
 
@@ -15,6 +16,6 @@ Mentalés:
 > Me fuí ...
 > Vale ahora cuenta la historia en voz alta con un poco de emocion
 
-El personaje cuenta la historia, algunos reaccionan de forma exagerada para lo que es la historia.
+El personaje cuenta la historia, algunos reaccionan de forma exagerada para lo que és.
 Un poco de silencio y se cambia de tema.
 A otra cosa
