@@ -1,6 +1,6 @@
 # ddavb.github.io
 
-## yep adrus
+## Cap.1: yep adrus
 
 pendiente
 - convertir **latex** a *html* por si hago algún "post" (githubpages [necesitaría alguna github action? xd])
@@ -19,17 +19,25 @@ Desde el punto de vista de la nave alienígena:
 
 > Ese repartidor viene después. El chico de ahora venía a enseñarnos Markdown y/o hacer un blog y _post en PAges tocando el gitarretohub Latex html
 
-> Ah, pues ... arreglalo and then commit changes, we can eat his tasty brain
+> Ah, pues ... arreglalo and then commit changes, we can eat his tasty brain too
 
-> that's naughty
+> mmm that's naughty
 
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
 # De mientras, esperaron
 
-## la serie
+## Cap.2: la serie
 
-hackeaeon el pensamiento de un humano para entretenerse e interpretaron:
+[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](Historia.md)
 
-[Contribution guidelines for this project](Historia.md)
+[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](/Historia.md)
 
+[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](./Historia.md)
+
+> Vaya. O distorsionan los recuerdos a posta, o ocurre algo en su mente que nos daría una ventaja descubrir. - jefe Wwwestupido master -
+
+> ingeniero (extraterrestre) Qwerqwewwww junior, ¡a trabajar!
+
+> [!NOTE]
+> El ingeniero nunca se puso a trabajar, y al no comer ni descubrir el misterio de los recuerdos humanos, volvieron a poner otra serie de pensamientos humanos para pasar el rato. Estaban descubriendo el ocio de manera adictiva
