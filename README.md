@@ -11,9 +11,9 @@ pendiente
 
 Desde el punto de vista de la nave alienígena:
 
-> ingeniero (extraterrestre) Qwerqwewwww junior, debes solucionar este fallo técnico en nuestro abductor, o no podremos recibir los rollitos de primavera de la tierra
+> ingeniero Qwerqwewwww, debes solucionar este fallo técnico en nuestro abductor, o no podremos recibir los rollitos de primavera de la tierra - dijo el ejefe Wwwoh -
 
-> jefe Wwwestupido master, ...
+> jefe ... - Qwerqwewwww -
 
 > Qué
 
@@ -35,9 +35,9 @@ De mientras, esperaron
 
 [hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](./Historia.md)
 
-> Vaya. O distorsionan los recuerdos a posta, o ocurre algo en su mente que nos daría una ventaja descubrir. - jefe Wwwestupido master -
+> Vaya. O distorsionan los recuerdos a posta, o ocurre algo en su mente que nos daría una ventaja descubrir. - jefe Wwwoh -
 
-> ingeniero (extraterrestre) Qwerqwewwww junior, ¡a trabajar!
+> ingeniero Qwerqwewwww, ¡a trabajar!
 
 > [!NOTE]
 > El ingeniero nunca se puso a trabajar, y al no comer ni descubrir el misterio de los recuerdos humanos, volvieron a poner otra serie de pensamientos humanos para pasar el rato. Estaban descubriendo el ocio de manera adictiva
