@@ -8,3 +8,7 @@ pendiente
 - gh codespaces? no lo necesito pero poder editar la misma carpeta de latex con cualquiera de mis ordenadores sería un puntazo
 
 [tek](historia/Archivo_principal.md)
+
+[tek](/historia/Archivo_principal.md)
+
+[tek](./historia/Archivo_principal.md)
