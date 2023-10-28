@@ -25,7 +25,7 @@ Desde el punto de vista de la nave alienígena:
 
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
-# De mientras, esperaron
+De mientras, esperaron
 
 ## Cap.2: la serie
 
@@ -42,9 +42,7 @@ Desde el punto de vista de la nave alienígena:
 > [!NOTE]
 > El ingeniero nunca se puso a trabajar, y al no comer ni descubrir el misterio de los recuerdos humanos, volvieron a poner otra serie de pensamientos humanos para pasar el rato. Estaban descubriendo el ocio de manera adictiva
 
-# El campo de batalla
-
-## asdasd
+## Cap. 3: El campo de batalla
 
 La probabilidad de jugar al golf y hacer todos y cada unos de los tiros de forma magistral, siendo realmente malo jugando al golf, existe.
 Sí, es inverosímil, pero existe. 
