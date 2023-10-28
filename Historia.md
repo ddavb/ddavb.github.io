@@ -1,16 +1,20 @@
-en un bar comentando las ultimas guerras
-politicas, recuerdo una anecdota para
-que la conversacion no deaciga
+Un personaje normal en un bar, comenta las últimas noticias sobre
+guerras politicas en algún lugar. Al quedarse sin más ideas:
 
-fui al mar y me enncontré un velero
-encayado
+Pensamiento en mentalés:
 
-fui a ver, habia un aguguero y
-no habia solucion
-dentro habia jn pulpo y me asuste
+> ... estoy recordando ... sí una anécdota ...
+> la comento así evito otra pausa incómoda
+> (por que las está habiendo y las van surfeando)
 
-vale ahora cuentala historia
-y que parezca emocionante
+Mentalés:
 
-cuenta la historia, se reacciona
-y se cambia de tema. a otra cosa
+> fui al mar, me enncontré un velero encayado.
+> fui a ver, habia un aguguero. ignoro si tiene arreglo, pero algo me inventaré para contarlo
+> Dentro habia un pulpo, me asusté, pulsaciones aceleradas.
+> Me fuí ...
+> Vale ahora cuenta la historia en voz alta con un poco de emocion
+
+El personaje cuenta la historia, algunos reaccionan de forma exagerada para lo que es la historia.
+Un poco de silencio y se cambia de tema.
+A otra cosa
