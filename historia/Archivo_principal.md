@@ -1,5 +1,7 @@
 # RELATET
 
+- [Cap.4](##Cap4:-Conspiraciones)
+
 ## Cap. 1: cap.1
 
 > oh Dios mío mientras escribo me están abduciendooooo(takitekatuka tuketatuka)ooooo (que es este cosquilleo en la epidermis? en toda todita toda la epidermis, también en la nariz, TAMBIÉN EN LA NARIZ). ¡Achuuss! Vaya, me he librado!
@@ -49,7 +51,7 @@ Son seres tan distintos a nosotros que el mestizaje sería la auténtica revoluc
 
 Hasta ahora lo más inverosímil había ocurrido en favor de ellos. ¿Podrán arrebatarnos la Tierra? Lo veremos o no próximaMENTE
 
-## Cap. 4: Consipariones
+## Cap4: Conspiraciones
 
 Los humanos tenían problemas. Mira este gráfico del índice de precios al consumo en España:
 
