@@ -31,5 +31,5 @@ Desde el punto de vista de la nave alienígena:
 
 hackeaeon el pensamiento de un humano para entretenerse e interpretaron:
 
-[Contribution guidelines for this project](Historia.md)
+[Contribution guidelines for this project](/Historia.md)
 
