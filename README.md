@@ -41,3 +41,18 @@ Desde el punto de vista de la nave alienígena:
 
 > [!NOTE]
 > El ingeniero nunca se puso a trabajar, y al no comer ni descubrir el misterio de los recuerdos humanos, volvieron a poner otra serie de pensamientos humanos para pasar el rato. Estaban descubriendo el ocio de manera adictiva
+
+# El campo de batalla
+
+## asdasd
+
+La probabilidad de jugar al golf y hacer todos y cada unos de los tiros de forma magistral, siendo realmente malo jugando al golf, existe.
+Sí, es inverosímil, pero existe. 
+
+Este caso hipotético sirve para explicar la situación de los alienígenas, que tenian intención de arrebatarnos la Tierra. Desde su existencia, todos los sucesos evolutivos, de desarrollo de conocimientos se debía a la suerte. Habían consegido organizar una sociedad prospera, debido a la suerte; desarrollar tecnología puntera sin hacer experimentos y sin dedicar tiempo y recursos a la inverstigación, pura suerte; hacer un viaje interespacial sin problemas y llegar a la Tierra.
+
+Son seres tan distintos a nosotros que el mestizaje sería la auténtica revolución evolutiva. Hasta en eso tenían suerte.
+
+Eran vagos, con poca concentración, no tenían el sentido del tacto y a veces morían por mala suerte. Pero de nuevo, los que morían así en cierta forma era veneficioso para el resto.
+
+Hasta ahora lo más inverosímil había ocurrido en favor de ellos. ¿Podrán arrebatarnos la Tierra? Lo veremos o no próximaMENTE
