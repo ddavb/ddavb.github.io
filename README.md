@@ -4,8 +4,9 @@
 
 pendiente
 - convertir **latex** a *html* por si hago algún "post" (githubpages [necesitaría alguna github action? xd])
+- pandoc (latex to other formats[markdown])
 - gh codespaces? no lo necesito pero poder editar la misma carpeta de latex con cualquiera de mis ordenadores sería un puntazo
-- 
+
 
 > oh Dios mío mientras escribo me están abduciendooooo(takitekatuka tuketatuka)ooooo (que es este cosquilleo en la epidermis? en toda todita toda la epidermis, también en la nariz, TAMBIÉN EN LA NARIZ). ¡Achuuss! Vaya, me he librado!
 
