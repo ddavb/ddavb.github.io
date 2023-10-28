@@ -21,11 +21,11 @@ De mientras, esperaron
   
 ## Cap.2: la serie
 
-[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](Historia.md)
+[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](historia/Hserie.md)
 
-[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](/Historia.md)
+[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](/historia/Hserie.md)
 
-[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](./Historia.md)
+[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](./historia/Hserie.md)
 
 > Vaya. O distorsionan los recuerdos a posta, o ocurre algo en su mente que nos daría una ventaja descubrir. - jefe Wwwoh -
 
