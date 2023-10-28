@@ -7,4 +7,4 @@ pendiente
 - pandoc (latex to other formats[markdown])
 - gh codespaces? no lo necesito pero poder editar la misma carpeta de latex con cualquiera de mis ordenadores sería un puntazo
 
-[tek](Historia.md)
+[tek](historia/Archivo_principal.md)
