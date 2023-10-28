@@ -55,4 +55,18 @@ Eran vagos, con poca concentración, no tenían el sentido del tacto y a veces m
 
 Hasta ahora lo más inverosímil había ocurrido en favor de ellos. ¿Podrán arrebatarnos la Tierra? Lo veremos o no próximaMENTE
 
+## Cap. 4: Consipariones
+
+Los humanos tenían problemas. Mira este gráfico del índice de precios al consumo en España:
+
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ipc_mensual.png)
+
+También tenían el problema de distorsionar los recuerdos. Y eso se traduce en que el muchacho que iba a ser abducido, y no lo fué, contó una historia tremenda que la opinión pública decidión debatir, creando nuevas distorsiones em los problemas que ya tenían.
+
+¿Sale el tema de los alienígenas para ocultar los problemas reales de la población? ¿De la pérdida de poder adquisitivo? ¿Del efecto humano en el cambio climático?
+¿Son fiables las premisas de conocimiento actual?
+¿Es la Tierra plana? ¿Habéis visto el culo de la nueva estrella?
+¿Por qué siempre que se predice un eclipse, éste se cumple? ¿No será que lso eclipses los provoca la mente?
+El hombre del tiempo se ha equivocado y me a tocado ir con la chaqueta en la mano por la calle
+
+Y bueno, lógicamente esto era droga pura para los extraterrestres, que descubrían or primera vez a una especie evolucionada, con grandes capacidades, pero que ésta no atinaba en la inverosimilitud de la buena suerte colectiva. Los humanos estaban ganando y los alienígenas experimentaban decepción
