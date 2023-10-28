@@ -1,6 +1,6 @@
 # RELATET
 
-- [Cap.4](##Cap4:-Conspiraciones)
+- [Cap.4](##Cap4-Conspiraciones)
 
 ## Cap. 1: cap.1
 
@@ -51,7 +51,7 @@ Son seres tan distintos a nosotros que el mestizaje sería la auténtica revoluc
 
 Hasta ahora lo más inverosímil había ocurrido en favor de ellos. ¿Podrán arrebatarnos la Tierra? Lo veremos o no próximaMENTE
 
-## Cap4: Conspiraciones
+## Cap4 Conspiraciones
 
 Los humanos tenían problemas. Mira este gráfico del índice de precios al consumo en España:
 
