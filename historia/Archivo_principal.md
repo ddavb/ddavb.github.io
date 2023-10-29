@@ -2,10 +2,10 @@
 
 - [RELATET](#RELATET)
   - [Cap.1](##Cap.-1:-cap.1)
-  - [Cap.2](##Cap.2:-la-serie)
+  - [Cap.2](##Cap.2-la-serie)
   - [Cap.3](##Cap.-3:-El-campo-de-batalla)
   - [Cap.4](##Cap4-Conspiraciones)
-  - [Cap.5](##Cap-5:-El-contacto)
+  - [Cap.5](##Cap5:-El-contacto)
 
 
 ## Cap. 1: cap.1
@@ -31,7 +31,7 @@ Desde el punto de vista de la nave alienígena:
 De mientras, esperaron
 
   
-## Cap.2: la serie
+## Cap.2 la serie
 
 [hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](historia/Hserie.md)
 
@@ -73,6 +73,6 @@ El hombre del tiempo se ha equivocado y me a tocado ir con la chaqueta en la man
 
 Y bueno, lógicamente esto era droga pura para los extraterrestres, que descubrían or primera vez a una especie evolucionada, con grandes capacidades, pero que ésta no atinaba en la inverosimil buena suerte colectiva. Los humanos estaban ganando la partida por suerte y eso descolocaba a los alienigenas
 
-## Cap 5: El contacto
+## Cap5: El contacto
 
 Tristemente en esta historia, al leer la mente de los humanos, los alienígenas se contagiaron es de una especie de meritocracia. Ante la ineptitud de estos a afrontar cualquier problema habiendo hecho un diagnóstico, o tener una mínima idea de la consecuencia de los actos, estos murieron al desviar su nave a Doñana. Que allí la situacion del agua esta muy mal y los nobles terratenientes preferian regar sus naranjos. Nunca se pudo realizar el mestizage de estas dos especies. Y los humanos ni almacenaron correctamente la información verídica de los sucesos, ni lo recordaron correctamente
