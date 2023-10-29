@@ -1,14 +1,14 @@
 # RELATET
 
 - [RELATET](#RELATET)
-  - [Cap.1](##Cap.-1:-cap.1)
+  - [Cap.1](##Cap.-1-cap.1)
   - [Cap.2](##Cap.2-la-serie)
-  - [Cap.3](##Cap.-3:-El-campo-de-batalla)
+  - [Cap.3](##Cap.-3-El-campo-de-batalla)
   - [Cap.4](##Cap4-Conspiraciones)
-  - [Cap.5](##Cap5:-El-contacto)
+  - [Cap.5](##Cap5-El-contacto)
 
 
-## Cap. 1: cap.1
+## Cap. 1 cap.1
 
 > oh Dios mío mientras escribo me están abduciendooooo(takitekatuka tuketatuka)ooooo (que es este cosquilleo en la epidermis? en toda todita toda la epidermis, también en la nariz, TAMBIÉN EN LA NARIZ). ¡Achuuss! Vaya, me he librado!
 
@@ -46,7 +46,7 @@ De mientras, esperaron
 > [!NOTE]
 > El ingeniero nunca se puso a trabajar, y al no comer ni descubrir el misterio de los recuerdos humanos, volvieron a poner otra serie de pensamientos humanos para pasar el rato. Estaban descubriendo el ocio de manera adictiva
 
-## Cap. 3: El campo de batalla
+## Cap. 3 El campo de batalla
 
 La probabilidad de jugar al golf y hacer todos y cada unos de los tiros de forma magistral, siendo realmente malo jugando al golf, existe.
 Sí, es inverosímil, pero existe. 
@@ -73,6 +73,6 @@ El hombre del tiempo se ha equivocado y me a tocado ir con la chaqueta en la man
 
 Y bueno, lógicamente esto era droga pura para los extraterrestres, que descubrían or primera vez a una especie evolucionada, con grandes capacidades, pero que ésta no atinaba en la inverosimil buena suerte colectiva. Los humanos estaban ganando la partida por suerte y eso descolocaba a los alienigenas
 
-## Cap5: El contacto
+## Cap5 El contacto
 
 Tristemente en esta historia, al leer la mente de los humanos, los alienígenas se contagiaron es de una especie de meritocracia. Ante la ineptitud de estos a afrontar cualquier problema habiendo hecho un diagnóstico, o tener una mínima idea de la consecuencia de los actos, estos murieron al desviar su nave a Doñana. Que allí la situacion del agua esta muy mal y los nobles terratenientes preferian regar sus naranjos. Nunca se pudo realizar el mestizage de estas dos especies. Y los humanos ni almacenaron correctamente la información verídica de los sucesos, ni lo recordaron correctamente
