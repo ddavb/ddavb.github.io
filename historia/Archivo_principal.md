@@ -1,7 +1,12 @@
 # RELATET
 
 - [RELATET](#RELATET)
+  - [Cap.1](##Cap.-1:-cap.1)
+  - [Cap.2](##Cap.2:-la-serie)
+  - [Cap.3](##Cap.-3:-El-campo-de-batalla)
   - [Cap.4](##Cap4-Conspiraciones)
+  - [Cap.5](##Cap-5:-El-contacto)
+
 
 ## Cap. 1: cap.1
 
