@@ -33,29 +33,31 @@ De mientras, esperaron
   
 ## Cap.2 la serie
 
-[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](historia/Hserie.md)
+Descubrieron una forma envidiable de pasar el rato. Sin saber cómo, leyeron el pensamiento de un humano en una situación cualquiera.
 
-[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](/historia/Hserie.md)
+[recibieron e interpretaron el pensamiento de un humano para entretenerse:](historia/Hserie.md)
 
-[hackeaeon e interpretaron el pensamiento de un humano para entretenerse:](./historia/Hserie.md)
+[recibieron e interpretaron el pensamiento de un humano para entretenerse:](/historia/Hserie.md)
 
-> Vaya. O distorsionan los recuerdos a posta, o ocurre algo en su mente que nos daría una ventaja descubrir. - jefe Wwwoh -
+[recibieron e interpretaron el pensamiento de un humano para entretenerse:](./historia/Hserie.md)
+
+> Vaya, estos seres vivos recuerdan el pasado de una forma imprecisa. Además de poseer cada uno recuerdos propios, los distorsionan ... ¿lo hacen a posta?¿es una especie de autodefensa?. Ocurre algo en su mente ... - jefe Wwwoh -
 
 > ingeniero Qwerqwewwww, ¡a trabajar!
 
 > [!NOTE]
-> El ingeniero nunca se puso a trabajar, y al no comer ni descubrir el misterio de los recuerdos humanos, volvieron a poner otra serie de pensamientos humanos para pasar el rato. Estaban descubriendo el ocio de manera adictiva
+> El ingeniero nunca se puso a trabajar, y al no comer ni descubrir el misterio de los recuerdos humanos, volvieron a poner otra capítulo de pensamientos humanos para pasar el rato. Estaban descubriendo el ocio de forma descontrolada.
 
 ## Cap. 3 El campo de batalla
 
 La probabilidad de jugar al golf y hacer todos y cada unos de los tiros de forma magistral, siendo realmente malo jugando al golf, existe.
 Sí, es inverosímil, pero existe. 
 
-Este caso hipotético sirve para explicar la situación de los alienígenas, que tenian intención de arrebatarnos la Tierra. Desde su existencia, todos los sucesos evolutivos, de desarrollo de conocimientos se debía a la suerte. Habían consegido organizar una sociedad prospera, debido a la suerte; desarrollar tecnología puntera sin hacer experimentos y sin dedicar tiempo y recursos a la inverstigación, pura suerte; hacer un viaje interespacial sin problemas y llegar a la Tierra.
+Este caso hipotético sirve para explicar la situación de estos alienígenas, cuya intención es la de arrebatarnos la Tierra. Desde su existencia, todos los sucesos evolutivos, de desarrollo de conocimientos se debía a la suerte. Habían consegido organizar una sociedad prospera, debido a la suerte; desarrollar tecnología puntera sin hacer experimentos y sin dedicar tiempo y recursos a la inverstigación, pura suerte; hacer un viaje interespacial sin problemas, llegar a la Tierra sin preveerlo y tener los recursos necesarios para aquello que ... para aquello que nada. Ni ellos sabían que hacían allí, sólo estaban. Van haciendo cosas y les ha salido bien.
 
-Son seres tan distintos a nosotros que el mestizaje sería la auténtica revolución evolutiva. Hasta en eso tenían suerte. Con una mente de una mosca, con una especie de telequinesis y de lectura de mentes ajenas ... eran vagos. Teían poca concentración, no tenían el sentido del tacto y su originalidad se debía a ideas brillantes producto de la buena suerte. Hacer ruedas sin querer, fuego cuando era necesario, curar a enfermos sin tener idea de como se hacía ...
+No pienses que hay algo de mágia detrás de todo este asunto. Todo lo que ha envuelto a estos protagonistas a sido un all in acertado a través de su historia. Suerte, sin más. Cuasa-efecto y un resultado tan inverosímil que lo único dificil es explicar por qué.
 
-Hasta ahora lo más inverosímil había ocurrido en favor de ellos. ¿Podrán arrebatarnos la Tierra? Lo veremos o no próximaMENTE
+Hasta ahora lo más inverosímil había ocurrido en favor de ellos. ¿Podrán arrebatarnos la Tierra? Ni ellos lo saben. Pero si les sale mal siempre podrán decir que no es lo que planeaban.
 
 ## Cap4 Conspiraciones
 
@@ -71,8 +73,13 @@ También distorsionaban sus recuerdos. Esto se traduce en que el muchacho que ib
 ¿Por qué siempre que se predice un eclipse, éste se cumple? ¿No será que lso eclipses los provoca la mente?
 El hombre del tiempo se ha equivocado y me a tocado ir con la chaqueta en la mano por la calle
 
-Y bueno, lógicamente esto era droga pura para los extraterrestres, que descubrían or primera vez a una especie evolucionada, con grandes capacidades, pero que ésta no atinaba en la inverosimil buena suerte colectiva. Los humanos estaban ganando la partida por suerte y eso descolocaba a los alienigenas
+Y bueno, lógicamente esto era droga pura para los extraterrestres, que descubrían or primera vez a una especie evolucionada, con grandes capacidades, pero que ésta no atinaba en la inverosimil buena suerte colectiva.
+Los humanos estaban ganando la partida por suerte y eso descolocaba a los alienigenas.
 
 ## Cap5 El contacto
 
-Tristemente en esta historia, al leer la mente de los humanos, los alienígenas se contagiaron es de una especie de meritocracia. Ante la ineptitud de estos a afrontar cualquier problema habiendo hecho un diagnóstico, o tener una mínima idea de la consecuencia de los actos, estos murieron al desviar su nave a Doñana. Que allí la situacion del agua esta muy mal y los nobles terratenientes preferian regar sus naranjos. Nunca se pudo realizar el mestizage de estas dos especies. Y los humanos ni almacenaron correctamente la información verídica de los sucesos, ni lo recordaron correctamente
+Tristemente en esta historia, al leer la mente de los humanos, los alienígenas se contagiaron es de una especie de meritocracia, donde los sucesos más normales son los que se acaban realizando. Algo que habían conseguido evitar estos seres atípicos.
+
+Ante la ineptitud de estos a afrontar cualquier problema habiendo hecho un diagnóstico, o tener una mínima idea de la consecuencia de los actos, estos murieron al utilizar sin sentido los mandos de la nave, que es lo que habían estado haciendo hasta ahora. 
+
+Los humanos ni consiguieron almacenaron la información verídica de los sucesos, ni lo recordaron correctamente.
