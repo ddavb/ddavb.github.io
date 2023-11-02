@@ -1,12 +1,18 @@
 # ddavb.github.io
 
-pendiente
-- convertir **latex** a *html* por si hago algún "post" (githubpages [necesitaría alguna github action? xd])
-- pandoc (latex to other formats[markdown])
-- gh codespaces? no lo necesito pero poder editar la misma carpeta de latex con cualquiera de mis ordenadores sería un puntazo
+deseos
+- saber usar github pages a raíz de un documento latex (hay templates)
+- convertir automáticamente **latex** a *html* para publicar algo de mi temario "post" (necesitaría alguna github action? xd) no me aclaro con github pages
+
+
+# relato
 
 [tek](historia/Archivo_principal.md)
 
+## mismo relato
+
 [tek](/historia/Archivo_principal.md)
+
+## mismo mismo relato
 
 [tek](./historia/Archivo_principal.md)
