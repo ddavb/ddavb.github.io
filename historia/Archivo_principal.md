@@ -35,7 +35,7 @@ De mientras, esperaron
 
 Descubrieron una forma envidiable de pasar el rato. Sin saber cómo, leyeron el pensamiento de un humano en una situación cualquiera.
 
-[recibieron e interpretaron el pensamiento de un humano para entretenerse:](historia/Hserie.md)
+[- Este es uno de los pensamientos que sustrajeron -](historia/Hserie.md)
 
 [recibieron e interpretaron el pensamiento de un humano para entretenerse:](/historia/Hserie.md)
 
