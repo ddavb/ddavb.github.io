@@ -8,12 +8,12 @@
   - [Falta transcribir el audio](##Falta-transcribir-el-audio)
 
 
-## Cap. 1 cap.1
+##Cap. 1 cap.1
 
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
   
-## SUEÑO 27/08 Un problema que se resuelve solo 
+##SUEÑO 27/08 Un problema que se resuelve solo 
 
 
 En el sueño estaba cachondo y de camino a Benicarló. Estaba llegando a la estacion de castellon para coger en tren de noche. La estación no era la real, era mas antigua y grande. Pero estaba guay.
