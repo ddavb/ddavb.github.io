@@ -1,7 +1,7 @@
 # RELATET
 
 - [RELATET](#RELATET)
-  - [Cap.1_cap.1](##Cap.1-cap.1)
+  - [Cap.1 cap.1](##Cap.1_cap.1)
   - [SUEÑO_27/08_Un_problema_que_se_resuelve_solo](##SUEÑO-2708-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](##SUEÑO%2027/08%20Terror%20acolchado)
   - [Las rotondas son el mal](##SUEÑO%2029/08%20Las%20rotondas%20son%20el%20mal)
