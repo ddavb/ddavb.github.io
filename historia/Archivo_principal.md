@@ -10,13 +10,15 @@
 
 ## Cap. 1 cap.1
 
-> oh Dios mío mientras escribo me están abduciendooooo(takitekatuka tuketatuka)ooooo (que es este cosquilleo en la epidermis? en toda todita toda la epidermis, también en la nariz, TAMBIÉN EN LA NARIZ). ¡Achuuss! Vaya, me he librado!
+> oh Dios mío mientras escribo me están abduciendooo ... ¿qué es este cosquilleo en la epidermis? en toda todita toda la epidermis, también en la nariz ... TAMBIÉN EN LA NARIZ). ¡Achuuss!
 
-Desde el punto de vista de la nave alienígena:
+> Vaya, me he librado!
 
-> ingeniero Qwerqwewwww, debes solucionar este fallo técnico en nuestro abductor, o no podremos recibir los rollitos de primavera de la tierra - dijo el ejefe Wwwoh -
+Desde algún sitio dentro de la nave alienígena:
 
-> jefe ... - Qwerqwewwww -
+> Tú, ingeniero Qwerq. Debes solucionar este fallo técnico en nuestro abductor, o no podremos recibir nunca mas los rollitos de primavera de la tierra - dijo el jefe Wwwoh -
+
+> jefe ... - Qwerq -
 
   > Qué
 
@@ -39,11 +41,11 @@ Descubrieron una forma envidiable de pasar el rato. Sin saber cómo, leyeron el 
 
 [recibieron e interpretaron el pensamiento de un humano para entretenerse:](/historia/Hserie.md)
 
-[recibieron e interpretaron el pensamiento de un humano para entretenerse:](./historia/Hserie.md)
+[mismo link con otro cambio:](./historia/Hserie.md)
 
 > Vaya, estos seres vivos recuerdan el pasado de una forma imprecisa. Además de poseer cada uno recuerdos propios, los distorsionan ... ¿lo hacen a posta?¿es una especie de autodefensa?. Ocurre algo en su mente ... - jefe Wwwoh -
 
-> ingeniero Qwerqwewwww, ¡a trabajar!
+> ingeniero Qwerq, ¡a trabajar!
 
 > [!NOTE]
 > El ingeniero nunca se puso a trabajar, y al no comer ni descubrir el misterio de los recuerdos humanos, volvieron a poner otra capítulo de pensamientos humanos para pasar el rato. Estaban descubriendo el ocio de forma descontrolada.
