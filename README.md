@@ -13,6 +13,6 @@ deseos
 
 [tek](/historia/Archivo_principal.md)
 
-## mismo mismo relato
+## sueños
 
-[tek](./historia/Archivo_principal.md)
+[tek](./historia/Archivo_sueños.md)
