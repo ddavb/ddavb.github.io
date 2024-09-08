@@ -1,4 +1,4 @@
-# ddavb.github.io-relato-
+# ddavb.github.io
 
 deseos
 - saber usar github pages a raíz de un documento latex (hay templates)
