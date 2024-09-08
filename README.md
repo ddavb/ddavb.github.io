@@ -5,13 +5,9 @@ deseos
 - convertir automáticamente **latex** a *html* para publicar algo de mi temario "post" (necesitaría alguna github action? xd) no me aclaro con github pages
 
 
-# relato
+# escritura automática
 
 [tek](historia/Archivo_principal.md)
-
-## mismo relato
-
-[tek](/historia/Archivo_principal.md)
 
 ## sueños
 
