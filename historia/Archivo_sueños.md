@@ -2,10 +2,10 @@
 
 - [RELATET](#RELATET)
   - [Cap.1](##Cap.-1-cap.1)
-  - [Cap.2](##Un-problema-que-se-resuelve-solo)
-  - [Cap.3](##Terror-acolchado)
-  - [Cap.4](##Las-rotondas-son-el-mal)
-  - [Cap.5](##Falta-transcribir-audio)
+  - [Un problema que se resuelve solo](##SUEÑO-27/08-Un-problema-que-se-resuelve-solo)
+  - [Terror acolchado](##SUEÑO-27/08-Terror-acolchado)
+  - [Las rotondas son el mal](##SUEÑO-29/08-Las-rotondas-son-el-mal)
+  - [Falta transcribir el audio](##Falta-transcribir-el-audio)
 
 
 ## Cap. 1 cap.1
@@ -13,7 +13,7 @@
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
   
-## SUEÑO Un problema que se resuelve solo 
+## SUEÑO 27/08 Un problema que se resuelve solo 
 
 
 En el sueño estaba cachondo y de camino a Benicarló. Estaba llegando a la estacion de castellon para coger en tren de noche. La estación no era la real, era mas antigua y grande. Pero estaba guay.
@@ -30,7 +30,7 @@ Me encuentro fuera de la estacion a los amigos de primaria y se lo comento. Cuan
 
 > [!NOTE]
 
-## SUEÑO terror acolchado
+## SUEÑO 27/08 terror acolchado
 
 Iba con mis padres por san gregori y me cruzaba con << ex M >>. Estaba un poco cambiada y daba miedo. Parecían una bruja.
 Por algun motivo mis pdres de pararon en la misma calle, en un puestito que habian preparado para vender ellos.
@@ -44,9 +44,9 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ipc_mensual.png)
 
 
-## SUEÑO 29/08 Las rotondas son el mal
+## SUEÑO 29/08 Las rotondas son el mal y un matón
 
-Estaba con joel pegandonos en broma cuando de repente estaba en el coche por la eotonda de la raya del terme, pierdo el control del coche (creo) y tengo un accidente multiple.
+Estaba con << amigo J >> pegandonos en broma cuando de repente estaba en el coche por la eotonda de la raya del terme, pierdo el control del coche (creo) y tengo un accidente multiple.
 
 Al coche intento salir de la rotonda pero estaba aturdido y di varios trompos
 
@@ -57,7 +57,11 @@ Voy al hospital, yo estoy bien, y la familia de los graves está destrozada. Nos
 
 Al salir vuelvo andando hasta benicarlo. Hay un paso de cebra en Neptuno y se esta liando porq los coches no paran.
 
-Voy a cruzar y a pararme en medio para que la gente pueda pasar, y hay un peaton que esta aso iado con un coche para increpar a los peatones. Uno de los peatones lo sabe y le vacila … sigue la conversacionmiemtras caminamos y el increpador hace de maton … (es marcos pla) y es badtante original dialécticamente
+Voy a cruzar y a pararme en medio para que la gente pueda pasar, y hay un peaton que esta aso iado con un coche para increpar a los peatones. Uno de los peatones lo sabe y le vacila … sigue la conversacionmiemtras caminamos y el increpador hace de maton … (es << amigo huracán MP >>) y es bastante original dialécticamente
 
-Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:am  y mucha info no se explcia con las palabras de la conversación.
+Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no se explica con las palabras de la conversación.
 Habian muchas insinuaciones y lenguaje verbal
+
+## SUEÑO 07/09 Falta transcribir el audio
+
+asdasd
