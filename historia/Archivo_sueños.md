@@ -1,14 +1,14 @@
 # RELATET
 
 - [RELATET](#RELATET)
-  - [Cap. 1 cap.1](##Cap.-1-cap.1)
+  - [Cap.1](##Cap.1-cap.1)
   - [SUEÑO 27/08 Un problema que se resuelve solo](##SUEÑO-27/08-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](##SUEÑO%2027/08%20Terror%20acolchado)
   - [Las rotondas son el mal](##SUEÑO%2029/08%20Las%20rotondas%20son%20el%20mal)
   - [Falta transcribir el audio](##Falta%20transcribir%20el%20audio)
 
 
-## Cap. 1 cap.1
+##Cap.1 cap.1
 
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
