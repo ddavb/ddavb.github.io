@@ -2,8 +2,8 @@
 
 - [RELATET](#RELATET)
   - [Cap1](#Cap.1-cap.1)
-  - [SUEÑO 27/08 Un problema que se resuelve solo](#SUEÑO-27/08-Un-problema-que-se-resuelve-solo)
-  - [Terror acolchado](#SUEÑO-27/08-Terror-acolchado)
+  - [SUEÑO 27/08 Un problema que se resuelve solo](#SUEÑO-2708-Un-problema-que-se-resuelve-solo)
+  - [Terror_acolchado](#SUEÑO-2708-Terror-acolchado)
   - [Las rotondas son el mal](#SUEÑO-29/08-Las-rotondas-son-el-mal)
   - [Falta transcribir el audio](#Falta-transcribir-el-audio)
 
@@ -30,7 +30,7 @@ Me encuentro fuera de la estacion a los amigos de primaria y se lo comento. Cuan
 
 > [!NOTE]
 
-## SUEÑO 27/08 terror acolchado
+## SUEÑO 2708 terror acolchado
 
 Iba con mis padres por san gregori y me cruzaba con << ex M >>. Estaba un poco cambiada y daba miedo. Parecían una bruja.
 Por algun motivo mis pdres de pararon en la misma calle, en un puestito que habian preparado para vender ellos.
