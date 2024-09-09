@@ -3,9 +3,9 @@
 - [RELATET](#RELATET)
   - [Cap1](#Cap.1-cap.1)
   - [SUEÑO 27/08 Un problema que se resuelve solo](#SUEÑO-2708-Un-problema-que-se-resuelve-solo)
-  - [Terror_acolchado](#SUEÑO-2708-Terror-acolchado)
-  - [Las rotondas son el mal](#SUEÑO-29/08-Las-rotondas-son-el-mal)
-  - [Falta transcribir el audio](#Falta-transcribir-el-audio)
+  - [Terror acolchado](#SUEÑO-2708-Terror-acolchado)
+  - [Las rotondas son el mal](#SUEÑO-2908-Las-rotondas-son-el-mal)
+  - [Falta transcribir el audio](#SUEÑO-0709-Falta-transcribir-el-audio)
 
 
 ## Cap.1 cap.1
