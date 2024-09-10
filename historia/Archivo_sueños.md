@@ -1,15 +1,15 @@
-# RELATET
+# SUEÑOS
 
-  - [SUEÑO 27/08 Un problema que se resuelve solo](#SUEÑO-2708-Un-problema-que-se-resuelve-solo)
-  - [Terror acolchado](#SUEÑO-2708-Terror-acolchado)
-  - [Las rotondas son el mal](#SUEÑO-2908-Las-rotondas-son-el-mal)
-  - [Falta transcribir el audio](#SUEÑO-0709-Falta-transcribir-el-audio)
+  - [Un problema que se resuelve solo](#SUEÑO-Un-problema-que-se-resuelve-solo)
+  - [Terror acolchado](#SUEÑO-Terror-acolchado)
+  - [Las rotondas son el mal](#SUEÑO-Las-rotondas-son-el-mal)
+  - [Falta transcribir el audio](#SUEÑO-Falta-transcribir-el-audio)
 
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
   
-## SUEÑO 27/08 Un problema que se resuelve solo 
+## Un problema que se resuelve solo 
 
 
 En un difuso inicio, estaba cachondo y de camino a mi pueblo. Estaba llegando a la estacion de castellon para coger en tren de noche. Una variacion de estación irreal, fantasiosa y antigua. Me gustaba.
@@ -26,7 +26,7 @@ Me encuentro fuera de la estacion a los amigos de primaria y se lo comento. Cuan
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea32_edit.png)
 
-## SUEÑO 27/08 terror acolchado
+## Terror acolchado
 
 Iba con mis padres por san gregori y me cruzaba con << ex M >>. Estaba un poco cambiada y daba miedo. Parecían una bruja.
 Por algun motivo mis pdres de pararon en la misma calle, en un puestito que habian preparado para vender ellos.
@@ -40,7 +40,7 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_1.png)
 
 
-## SUEÑO 29/08 Las rotondas son el mal y un matón
+## Las rotondas son el mal y un matón
 
 Estaba con << amigo J >> pegandonos en broma cuando de repente estaba en el coche por la eotonda de la raya del terme, pierdo el control del coche (creo) y tengo un accidente multiple.
 
@@ -60,7 +60,7 @@ Habian muchas insinuaciones y lenguaje verbal
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
 
-## SUEÑO 07/09 Falta transcribir el audio
+## Falta transcribir el audio
 
 asdasd
 
