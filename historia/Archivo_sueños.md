@@ -24,7 +24,7 @@ Por algun motivo antes de entrar al tren, me imagino que hay otros tornos cuando
 
 Me encuentro fuera de la estacion a los amigos de primaria y se lo comento. Cuando acabé de contar la historia amanece de forma fugaz. Desde ese instante, para mi sorpresa, me doy cuenta de que ya estaba en Benicarló desde que salí de la estación.
 
-
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea32_edit.png)
 
 ## SUEÑO 27/08 terror acolchado
 
@@ -37,7 +37,7 @@ Se que es una trampa e intento escaparme de ella, pero cerca de mis padres, no q
 Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sangre falsa, y yo ‘culpable’, me exige que me vaya con ella o sufriré. Mis padres viendo la escena, con miedo, yo les digo que no miren, que debería haber puesto otra peli. Mi madre repite, como siempre que hay una pelicula gore/terror: ayyy cambialaa
 
 
-![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ipc_mensual.png)
+![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_1.png)
 
 
 ## SUEÑO 29/08 Las rotondas son el mal y un matón
@@ -58,6 +58,10 @@ Voy a cruzar y a pararme en medio para que la gente pueda pasar, y hay un peaton
 Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no se explica con las palabras de la conversación.
 Habian muchas insinuaciones y lenguaje verbal
 
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
+
 ## SUEÑO 07/09 Falta transcribir el audio
 
 asdasd
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea1.png)
