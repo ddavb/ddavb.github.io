@@ -1,36 +1,33 @@
 # RELATET
 
 - [RELATET](#RELATET)
-  - [Cap1](#Cap.1-cap.1)
   - [SUEÑO 27/08 Un problema que se resuelve solo](#SUEÑO-2708-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#SUEÑO-2708-Terror-acolchado)
   - [Las rotondas son el mal](#SUEÑO-2908-Las-rotondas-son-el-mal)
   - [Falta transcribir el audio](#SUEÑO-0709-Falta-transcribir-el-audio)
 
 
-## Cap.1 cap.1
-
-![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
   
 ## SUEÑO 27/08 Un problema que se resuelve solo 
 
 
-En el sueño estaba cachondo y de camino a Benicarló. Estaba llegando a la estacion de castellon para coger en tren de noche. La estación no era la real, era mas antigua y grande. Pero estaba guay.
+En un difuso inicio, estaba cachondo y de camino a mi pueblo. Estaba llegando a la estacion de castellon para coger en tren de noche. Una variacion de estación irreal, fantasiosa y antigua. Me gustaba.
 
-No sabía a que hora llegaba el tren, pensé en salie a una mesa a estudiar, pero al entrar me di cuenta de que tendria poco tiempo.
+No sabía a que hora llegaba el tren, pensé en salir a una mesa a estudiar. Pronto me di cuenta de que tendria poco tiempo y que era mejor dirigirse a las vias del tren.
 
 Como es recurrente en los sueños, siempre, o casi siempre,que cojo un telf movil me atoro y no consigo hacer nada.
 
-Esta vez era con la compra del billete de tren por la app (en taquilla era tarde para comprar). Quedaban cinco mins para que llegara y no me aclaraba con la nueva actualización de la app. Me ayudaban los de renfe/seguridad que estaban cerca del torno y logré comprar el billete. Fue otro suplicio encontrar el billete en la cartera virtual para validarlo. Veo que el tren llega y yo consigo pasar por el torno
+Esta vez era con la compra del billete de tren por la app (en taquilla era tarde para comprar). Quedaban cinco mins para que llegara y no me aclaraba con la nueva actualización. Me ayudaban los de renfe/seguridad que estaban cerca del torno y logré comprar el billete. Fue otro suplicio encontrar el billete en la cartera virtual para validarlo. Veo que el tren llega y yo consigo pasar por el torno
 
 Por algun motivo antes de entrar al tren, me imagino que hay otros tornos cuando realmente no los hay. Intento buscar el billete otra vez en la cartera virtual en la app de renfe, esta vez solo, pero es imposible. Intento pedir ayuda, no me hacen caso, intento ver la app renfe, carrera hacia los de renfe, siempre algun impedimento, vuelta a la app … bueno que el tren se va y me doy cuenta de que no habia q validar otra vez el billete. La fustracion es máxima 
 
-Me encuentro fuera de la estacion a los amigos de primaria y se lo comento. Cuando acabé de contar la historia amaneció de golpe, y sorprendentemente ya estábamos en Benicarló.
+Me encuentro fuera de la estacion a los amigos de primaria y se lo comento. Cuando acabé de contar la historia amanece de forma fugaz. Desde ese instante, para mi sorpresa, me doy cuenta de que ya estaba en Benicarló desde que salí de la estación.
 
 > [!NOTE]
 
-## SUEÑO 2708 terror acolchado
+## SUEÑO 27/08 terror acolchado
 
 Iba con mis padres por san gregori y me cruzaba con << ex M >>. Estaba un poco cambiada y daba miedo. Parecían una bruja.
 Por algun motivo mis pdres de pararon en la misma calle, en un puestito que habian preparado para vender ellos.
