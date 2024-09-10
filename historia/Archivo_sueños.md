@@ -1,6 +1,5 @@
 # RELATET
 
-- [RELATET](#RELATET)
   - [SUEÑO 27/08 Un problema que se resuelve solo](#SUEÑO-2708-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#SUEÑO-2708-Terror-acolchado)
   - [Las rotondas son el mal](#SUEÑO-2908-Las-rotondas-son-el-mal)
