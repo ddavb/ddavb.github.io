@@ -1,12 +1,12 @@
 # ddavb.github.io
 
-- convertir automáticamente **latex** a *html* para publicar algo de mi temario "post" (necesitaría alguna github action? xd) no me aclaro con github pages
+- duda: ¿se puede convertir automáticamente **latex** a *html*?
 
 
 # escritura automática
 
 [tek](historia/Archivo_principal.md)
 
-## sueños
+# sueños
 
 [tek](./historia/Archivo_sueños.md)
