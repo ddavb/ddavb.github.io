@@ -1,32 +1,44 @@
 # SUEÑOS
 
-  - [Un problema que se resuelve solo](#SUEÑO-Un-problema-que-se-resuelve-solo)
-  - [Terror acolchado](#SUEÑO-Terror-acolchado)
-  - [Las rotondas son el mal](#SUEÑO-Las-rotondas-son-el-mal)
+  - [Un problema que se resuelve solo](#SUEÑO-2708-Un-problema-que-se-resuelve-solo)
+  - [Terror acolchado](#SUEÑO-2708-Terror-acolchado)
+  - [Las rotondas son el mal](#SUEÑO-2908-Las-rotondas-son-el-mal)
   - [Falta transcribir el audio](#SUEÑO-Falta-transcribir-el-audio)
 
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
   
-## Un problema que se resuelve solo 
+## SUEÑO 27/08 Un problema que se resuelve solo 
 
 
-En un difuso inicio, estaba cachondo y de camino a mi pueblo. Estaba llegando a la estacion de castellon para coger en tren de noche. Una variacion de estación irreal, fantasiosa y antigua. Me gustaba.
+En un difuso inicio, estaba cachondo y de camino a mi pueblo.
+Estaba llegando a la estacion de castellon para coger en tren de noche.
+Una variacion de estación irreal, fantasiosa y antigua. Me gustaba.
 
-No sabía a que hora llegaba el tren, pensé en salir a una mesa a estudiar. Pronto me di cuenta de que tendria poco tiempo y que era mejor dirigirse a las vias del tren.
+No sabía a que hora llegaba el tren, pensé en salir a una mesa a estudiar.
+Pronto me di cuenta de que tendria poco tiempo y que era mejor dirigirse a las vias del tren.
 
 > [!Como es recurrente en los sueños, siempre, o casi siempre,que cojo un telf movil me atoro y no consigo hacer nada. Esta vez era con la compra del billete de tren por la app (en taquilla era tarde para comprar).]
 
-Quedaban cinco mins para que llegara y no me aclaraba con la nueva actualización. Me ayudaban los de renfe/seguridad que estaban cerca del torno y logré comprar el billete. Fue otro suplicio encontrar el billete en la cartera virtual para validarlo. Veo que el tren llega y yo consigo pasar por el torno
+Quedaban cinco mins para que llegara y no me aclaraba con la nueva actualización.
+Me ayudaban los de renfe/seguridad que estaban cerca del torno y así logré comprar el billete.
+Fue otro suplicio encontrar el billete en la cartera virtual para validarlo.
+Veo que el tren llega y yo consigo pasar por el torno.
 
-Por algun motivo antes de entrar al tren, me imagino que hay otros tornos cuando realmente no los hay. Intento buscar el billete otra vez en la cartera virtual en la app de renfe, esta vez solo, pero es imposible. Intento pedir ayuda, no me hacen caso, intento ver la app renfe, carrera hacia los de renfe, siempre algun impedimento, vuelta a la app … bueno que el tren se va y me doy cuenta de que no habia q validar otra vez el billete. La fustracion es máxima 
+Por algun motivo antes de entrar al tren, me imagino que hay otros tornos cuando realmente no los hay.
+Intento buscar el billete otra vez en la cartera virtual en la app de renfe, esta vez solo, pero es imposible.
+Intento pedir ayuda, no me hacen caso, intento ver la app renfe, carrera hacia los de renfe, siempre algun impedimento, vuelta a la app … 
+Definitivamente se va el tren y es en ese instante cuando me doy cuenta de que no habia q validar otra vez el billete.
+La fustracion es máxima 
 
-Me encuentro fuera de la estacion a los amigos de primaria y se lo comento. Cuando acabé de contar la historia amanece de forma fugaz. Desde ese instante, para mi sorpresa, me doy cuenta de que ya estaba en Benicarló desde que salí de la estación.
+Salgo de la estacion, cabizbajo, y me junto con varios amigos de primaria.
+Comento lo que ha sucedido y al terminar de contar la historia, amanece de forma fugaz.
+Desde ese instante, para mi sorpresa, me doy cuenta de que ya estaba en Benicarló desde que salí de la estación.
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea32_edit.png)
 
-## Terror acolchado
+## SUEÑO 27/08 Terror acolchado
 
 Iba con mis padres por san gregori y me cruzaba con << ex M >>. Estaba un poco cambiada y daba miedo. Parecían una bruja.
 Por algun motivo mis pdres de pararon en la misma calle, en un puestito que habian preparado para vender ellos.
@@ -40,7 +52,7 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_1.png)
 
 
-## Las rotondas son el mal y un matón
+## SUEÑO 29/08 Las rotondas son el mal y un matón
 
 Estaba con << amigo J >> pegandonos en broma cuando de repente estaba en el coche por la eotonda de la raya del terme, pierdo el control del coche (creo) y tengo un accidente multiple.
 
