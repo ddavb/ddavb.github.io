@@ -5,7 +5,3 @@
 # sueños
 
 [tek](./historia/Archivo_sueños.md)
-
-% # escritura automática
-
-% [tek](historia/Archivo_principal.md)
