@@ -1,6 +1,6 @@
 # ddavb.github.io
 
-- Archivo de sueños de gente con criterio que se pierde en el subconsciente. Cualquier redacción de sueños puede ocasionar al lector una interpretación erronea de lo que realmente a sucedido en una mente en estado REM. No eres Froyd, asúmelo.
+- Archivo de sueños de gente con criterio que se pierde en el subconsciente. Cualquier redacción de sueños puede ocasionar al lector una interpretación erronea de lo que realmente a sucedido en una mente en estado REM. No eres Freud, asúmelo.
 
 # sueños
 
