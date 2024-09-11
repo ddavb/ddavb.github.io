@@ -6,6 +6,6 @@
 
 [tek](./historia/Archivo_sueños.md)
 
-# escritura automática
+% # escritura automática
 
-[tek](historia/Archivo_principal.md)
+% [tek](historia/Archivo_principal.md)
