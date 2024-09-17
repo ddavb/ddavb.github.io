@@ -5,7 +5,7 @@
   - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal-y-un-maton)
   - [Un problema que se resuelve solo](#27082024-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#27082024-Terror-acolchado)
-  - [Boxeo, sexo y un loop](#28032021-Boxeo,-sexo-y-un-loop)
+  - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
 
  
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
