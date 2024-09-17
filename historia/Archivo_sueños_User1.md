@@ -81,7 +81,7 @@ asdasd
 
 ## otro 16/09 incompleto
 
-cena padres y padre hace algo torpe le hechamos la bronca
+cena familiar y mi padre hace algo torpe con lo que le hechamos la bronca
 
 caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueños. son dos chinos y estaban fumando. me enseñan unas hamburguesas que tenían una punta brutal ... pienso que es un buen lugar para tener en cuenta y le mando una foto del sitio a << M Galápagos >>. En ese momento veo que me está escribiendo por instagram para contarme que ha soñado. 
 
