@@ -1,10 +1,11 @@
 # SUEÑOS
 
   - [16/09 incompleto POR EDITAR](#1609-incompleto)
+  - [11/09/2024 POR TRANSCRIBIR](#1609-Falta-transcribir-el-audio)
   - [Las rotondas son el mal](#2908-Las-rotondas-son-el-mal)
   - [Un problema que se resuelve solo](#2708-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#2708-Terror-acolchado)
-  - [28/03/2021 POR EDITAR](#28032021-Falta-transcribir-el-audio)
+  - [28/03/2021 POR EDITAR](#28032021-Falta-editar)
 
  
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
@@ -18,6 +19,13 @@ caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueño
 Me despierto rápido y tardo en asimilar que era un sueño
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
+
+
+## 11/09/2024 Falta transcribir el audio
+
+...
+
+
 
 ## 29/08 Las rotondas son el mal y un matón
 
