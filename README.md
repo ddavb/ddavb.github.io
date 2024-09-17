@@ -1,6 +1,6 @@
 # ddavb.github.io
 
-- Archivo de sueños. Ten en cuenta que no eres Freud, asúmelo.
+- Archivo anónimo de sueños
 
 # Sueños
 
