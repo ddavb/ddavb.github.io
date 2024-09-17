@@ -93,7 +93,7 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 
 
 
-## 28/03/2021 Falta transcribir el audio
+## 28/03/2021 Falta editar
 
 - *Resumen: follaba mucho, combate de boxeo, compra zapatillas en londres, fiesta*
 
