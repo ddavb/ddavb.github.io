@@ -157,9 +157,12 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 
 ## 28/03/2021 Falta editar
 
-- *Resumen: follaba mucho, combate de boxeo, compra zapatillas en londres, fiesta*
+- *Resumen: follaba mucho y mientras lo hacía me convertía en Freddie Mercury. Combate de boxeo, compra zapatillas en londres y fiesta*
 
 *TRANSCRIPCIÓN del audio:*
+
+
+### Escenario del ring
 
 buscando restos arqueológicos, no se si eran mios ... pero no dio frutos
 
@@ -185,47 +188,48 @@ empieza el combate y lo gano. el primer combate
 todo guay
 
 
+### Escenario del jacuzzy
 
-Siguiente escenario
+estaba en un jacuzzy con una amiga con la que tengo sexo y también conversación
 
-estaba en un jacuzzy con una tia (follamos) y también hablabamos
+estaba un poco rellena, tenía dos mamellas grandes y caídas (incido en que eran dos porq al ser un sueño nunca se sabe)
 
-estaba un poco rellena, tetas grandes y caídas
+el escenario cambia continuamente y el jacuzzy, que ahora es una piscina de piedra en mitad de una plaza pública con comercios.
+Esta´n ahora también amigos por ahí cerca, a mi amiga le empiezo a contar que es muy dificil ser freddie mercury porq la gente no te entiende y 
 
-el escenario cambia continuamente y el jacuzzy, que ahora es una piscina de piedra en mitad de una plaza pública con comercios. Esta´n ahora también amigos por ahí cerca, a mi amiga le empiezo a contar que es muy dificil ser fredy mercury porq la gente no te entiende y 
+En algún momento me doy cuenta de que esta escena es una demostración de que freddie mercury follaba.
+Pero en el sueño yo tenía el cuerpo de FM.
 
-En algún momento me doy cuenta de que esta es una demostración de que fredy mercury follaba (que era yo en el sueño)
-
-yo era fredy mercury, pero mientras me follaba a la chica habían momentos de tercera persona donde fredy mercury era otro (un personaje de sueño que ya no era yo, y yo era el que tenia sexo)
+yo era freddie mercury, pero mientras tenía sexo con la chica habían momentos de tercera persona donde yo me abstraía de ese cuerpo y observaba desde fuera
 
 a los amigos los veia en una plaza como se divertian, llena de cesped en mitad de londres
 estaban haciendo un karaoke improvisado
 
-por dentro pensaba que la gente no valoraba a una persona que se va a convertir en famosa, lógico, no lo saben
+por dentro pensaba que la gente no valoraba a una persona que se va a convertir en famosa.
+Que sin la fama puedes ser infravalorado
 
-despues de ese pensamiento me acuerdo de que tengo 200 euros en los bolsillos y damos una paseo por el centro de londres
+despues de ese pensamiento me acuerdo de que tengo 200 euros en los bolsillos y me los presentes en la plaza con el karaoke nos animamos a dar una paseo por el centro de londres.
+Algunos se quedan atras y yo veo a deivid
 
-con todos los amigos de la plaza del karaoke, algunos se quedan atras y yo veo a deivid
+es londres ... lugar por descubrir ... pero tenia confianza por haber ganado en el boxeo. No me iba a pasar nada malo
 
-es londres ... pero tenia confianza por haber ganado en el boxeo
+con los 200 euros me voy a buscar un lugar para comprar zapatillas, porq porfin tengo dinero y me hacían falta
 
-con los 200 euros me voy a buscar un lugar para comprar zapatillas, porq porfin tengo dinero y tengo que comprarme unas zapatillas
-
-empiezo a ver tiendas y las zapas son caras
-
-empiezo a dudar de si lo que yo quiero son zapatillas
+Empiezo a ver tiendas y las zapas son caras.
+Dudo de si lo que realmente quiero es eso
 
 (voy recordando más cosas)
 
-al final paso de las zapatillas y vuelvo a la piscina con otra gente.
-Había una pareja que me recuerda el coito anterior. Eso hace que aparezca la chica que me dio placer y volvemos a follar
+Paso de las zapatillas finalmente y vuelvo a la piscina con otra gente.
+Había una pareja que me recuerda el coito anterior.
+Eso hace que aparezca la chica sexy y volvamos a darnos placer
 
 
-
+### Escenario de un recinto pueblerino
 
 ANTES o después ... no se, soñé con un videojuego chino, o una situación que se va repitiendo
 
-era como si unos cuantos amigos quedaran para pasar una tarde noche pero no de fiesta
+era como si unos cuantos amigos quedaran para pasar una tarde noche, pero no de fiesta
 
 encuentran un lugar abandonado, y dentro de ese lugar hay un circuito (un tobogán chuingo del que me tiré) al final del tunel había un bar karaoke con piscinas de bolas, medio destrozado y que solo servían cerveza
 
