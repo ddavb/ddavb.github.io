@@ -4,7 +4,6 @@
   - [Las rotondas son el mal](#2908-Las-rotondas-son-el-mal)
   - [Un problema que se resuelve solo](#2708-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#2708-Terror-acolchado)
- 
   - [28/03/2021 POR EDITAR](#28032021-Falta-transcribir-el-audio)
 
  
@@ -90,7 +89,7 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 
 - *Resumen: follaba mucho, combate de boxeo, compra zapatillas en londres, fiesta*
 
-- *TRANSCRIPCIÓN del audio:*
+*TRANSCRIPCIÓN del audio:*
 
 buscando restos arqueológicos, no se si eran mios ... pero no dio frutos
 
@@ -99,7 +98,7 @@ Cobro de la orquesta y de repente estoy ...
 ... estoy en un ring que voy a pelearme con alguien, es la primera vez que me peleo y pensaba que iba a perder.
 No estaba nervioso
 
-tenia rabia, ganas de luchar, sensación de pelea
+Tenia rabia, ganas de luchar, sensación de pelea.
 Son dos asaltos
 En el primero no estaba luchado yo, estaba luchando otro, mi "compañero de pelea", que lo hace bien.
 Lo está haciendo muy bien, hasta que el otro le machaca lanzandole contra una columna de fuera del escenario.
@@ -175,5 +174,5 @@ Me pongo a jugar al mario kart para desbloquear cre´ditos, que utilizaré para 
 
 Me pongo a jugar para desboquearlo y no logro desbloquear nada
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea1.png)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea1.jpg)
 
