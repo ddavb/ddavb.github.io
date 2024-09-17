@@ -1,16 +1,16 @@
 # SUEÑOS
 
-  - [16/09 incompleto POR EDITAR](#1609-incompleto)
-  - [11/09/2024 POR TRANSCRIBIR](#1609-Falta-transcribir-el-audio)
-  - [Las rotondas son el mal](#2908-Las-rotondas-son-el-mal)
-  - [Un problema que se resuelve solo](#2708-Un-problema-que-se-resuelve-solo)
-  - [Terror acolchado](#2708-Terror-acolchado)
+  - [16/09 incompleto POR EDITAR](#16092024-incompleto)
+  - [11/09/2024 POR TRANSCRIBIR](#11092024-Falta-transcribir-el-audio)
+  - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal)
+  - [Un problema que se resuelve solo](#27082024-Un-problema-que-se-resuelve-solo)
+  - [Terror acolchado](#27082024-Terror-acolchado)
   - [28/03/2021 POR EDITAR](#28032021-Falta-editar)
 
  
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
 
-## 16/09 incompleto
+## 16/09/2024 incompleto
 
 cena familiar y mi padre hace algo torpe con lo que le hechamos la bronca
 
@@ -27,7 +27,7 @@ Me despierto rápido y tardo en asimilar que era un sueño
 
 
 
-## 29/08 Las rotondas son el mal y un matón
+## 29/08/2024 Las rotondas son el mal y un matón
 
 Estaba con << amigo J >> pegandonos en broma cuando de repente estaba en el coche por la eotonda de la raya del terme, pierdo el control del coche (creo) y tengo un accidente multiple.
 
@@ -48,7 +48,7 @@ Habian muchas insinuaciones y lenguaje verbal
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
 
   
-## 27/08 Un problema que se resuelve solo 
+## 27/08/2024 Un problema que se resuelve solo 
 
 
 En un difuso inicio, estaba cachondo y de camino a mi pueblo.
@@ -77,7 +77,7 @@ Desde ese instante, para mi sorpresa, me doy cuenta de que ya estaba en Benicarl
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea32_edit.png)
 
-## 27/08 Terror acolchado
+## 27/08/2024 Terror acolchado
 
 Iba con mis padres por san gregori y me cruzaba con << ex M >>. Estaba un poco cambiada y daba miedo. Parecían una bruja.
 Por algun motivo mis pdres de pararon en la misma calle, en un puestito que habian preparado para vender ellos.
