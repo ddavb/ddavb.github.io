@@ -1,8 +1,8 @@
 # SUEÑOS
 
-  - [16/09 incompleto POR EDITAR](#16092024-incompleto)
+  - [16/09/2024 incompleto POR EDITAR](#16092024-incompleto)
   - [11/09/2024 POR TRANSCRIBIR](#11092024-Falta-transcribir-el-audio)
-  - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal)
+  - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal-y-un-maton)
   - [Un problema que se resuelve solo](#27082024-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#27082024-Terror-acolchado)
   - [28/03/2021 POR EDITAR](#28032021-Falta-editar)
