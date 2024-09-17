@@ -1,7 +1,7 @@
-# SUEÑOS
+# SUEÑOS crudos, por editar
 
-  - [16/09/2024 incompleto POR EDITAR](#16092024-incompleto)
-  - [11/09/2024 POR TRANSCRIBIR](#11092024-Falta-transcribir-el-audio)
+  - [Fragmento chino](#16092024-Fragmento-chino)
+  - [Parte policial](#11092024-Parte-policial)
   - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal-y-un-maton)
   - [Un problema que se resuelve solo](#27082024-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#27082024-Terror-acolchado)
@@ -10,7 +10,7 @@
  
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
 
-## 16/09/2024 incompleto
+## 16/09/2024 Fragmento chino
 
 cena familiar y mi padre hace algo torpe con lo que le hechamos la bronca
 
@@ -21,9 +21,71 @@ Me despierto rápido y tardo en asimilar que era un sueño
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
 
-## 11/09/2024 Falta transcribir el audio
+## 11/09/2024 Parte policial
 
-...
+he soñado que iba con padre y hermano con una furgoneta de viaje
+
+no, con el peujeot
+
+veniamos de algún sitio y ibamos a un sitio indeterminado
+
+de donde volviamos, mandaron un mensaje dos, y mi padre que conducia se puso a verlo y dejó los mandos del volante
+
+intenté avisar de que había un semaforo en rojo
+
+cojí el volante, empecé a esquivar coches
+
+- PADRE QUE HACES, presta atención COJE EL VOLANTE
+
+el responde, 
+- pero si ya sabes donde está el embrage (hazlo tú)
+
+pongo el freno de mano, empezamos a derrapar, nos chocamos ... una locura
+
+yo estaba en schock, pensaba:
+- qué cojones acaba de pasar? mi padre no es así, en serio que ha pasado?
+
+yo cabreadísimo se lo intento explicar con mi hermano, intento hablar con mi padre, intento hablar! pero no podía, estaba afónico de tanto gritar
+
+drama
+
+pienso que igual hay que hacer un parte, llamar a la policía. hacer Algo
+
+me dicen:
+- vale vale
+
+yo rayadísimo, empiezo a pensar que he de decir a la policía por que si digo la verdad, al igual le meto en problemas.
+Pero algo hay que decir
+
+estan los polis de chachara:
+- ay no se que, valo esto, iros y os avisamos
+
+yo pensaba,
+- pero y que pasa con nuestra furgoneta? pregunto
+
+- si hacéis un parte se quedará dos años aquí ... - muecas de los polis de que quizá lo correcto no es hacer lo correcto
+
+- pero como que dos años?
+
+- yaa ya, es que al igual no os interesa hacer un parte - polis
+
+padre y adri se fueron, yo me quedé con la policía para enseñar la furgoneta, para que vieran que no había nada que investigar dentro, que eramos gente normal que había tenido un accidente. No hacía falta que investigaran dos años la furgoneta.
+
+Voy a enseñarle la furgoneta por dentro:
+
+abro una puerta
+
+- aquí hay mochilas con cosas (estábamos de viaje) - digo
+
+abro otra puerta
+
+- aquí hay como revistas (me pregunto de donde habían salido). Parece raro pero tiene explicación, sólo son revistas - digo
+
+abro otra puerta y hay más revistas. Esta vez revistas porno. Una portada de tetas, otra con título con CULONAS
+
+- BFF - digo
+
+- esto ... bueno esto parece más raro. En todo caso no es mío
 
 
 
