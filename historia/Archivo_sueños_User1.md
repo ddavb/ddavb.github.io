@@ -5,7 +5,7 @@
   - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal-y-un-maton)
   - [Un problema que se resuelve solo](#27082024-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#27082024-Terror-acolchado)
-  - [28/03/2021 POR EDITAR](#28032021-Falta-editar)
+  - [28/03/2021 Boxeo, sexo y un loop](#28032021-Boxeo,-sexo-y-un-loop)
 
  
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
@@ -155,7 +155,7 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 
 
 
-## 28/03/2021 Falta editar
+## 28/03/2021 Boxeo, sexo y un loop
 
 - *Resumen: follaba mucho y mientras lo hacía me convertía en Freddie Mercury. Combate de boxeo, compra zapatillas en londres y fiesta*
 
