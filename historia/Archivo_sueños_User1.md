@@ -67,7 +67,7 @@ Yo por teléfono ya había dicho que al final no tocamos por que << Z-Pitarch >>
 Que podríamos haber grabado todo con video y audio y que fue una pena no habernos puesto de acuerdo.
 < areyenS > asentía con ímpetu.
 
-Mientras revivía el recuerdo, yo y << areyenS >> nos daba rabia porq a nosotros si que nos hubiera gustado tocar.
+Mientras revivía el recuerdo, a<< areyenS >> y a mi nos daba rabia porq a nosotros sí que nos hubiera gustado tocar.
 Ibamos caminando por el lugar en cuestión, con un pedo tremendo.
 Bajando por un desnivel, << areyenS >> dió un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
 Yo tenía que hacer lo mismo pero con la borrachera fui con sumo cuidado, a cuatro patas y despacito.
