@@ -275,16 +275,14 @@ Eso hace que aparezca la chica sexy y volvamos a darnos placer
 
 ### Escenario de un recinto pueblerino
 
-ANTES o después ... no se, soñé con un videojuego chino, o una situación que se va repitiendo
-
-era como si unos cuantos amigos quedaran para pasar una tarde noche, pero no de fiesta
+> ANTES o después ... no se, soñé con un videojuego chino, o una situación que se va repitiendo
+> Era como si unos cuantos amigos quedaran para pasar una tarde noche, pero no de fiesta
 
 encuentran un lugar abandonado, y dentro de ese lugar hay un circuito (un tobogán chuingo del que me tiré) al final del tunel había un bar karaoke con piscinas de bolas, medio destrozado y que solo servían cerveza
 
 
-Este fragmento de sueño se repite en formato de videojuego retro,
-y despúes vivo la simulación, que es "diferente"
-En la simulación, cuando bajo por el tunel, había chinos por ahí que habían luchado contra el coronavirus y estaban allí para ayudarnos y hacer lo que sea necesario
+> Este fragmento de sueño se repite en formato de videojuego retro, y despúes vivo la simulación, que es "diferente"
+> En la simulación, cuando bajo por el tunel, había chinos por ahí que habían luchado contra el coronavirus y estaban allí para ayudarnos y hacer lo que sea necesario
 
 me hago amigo de un chino y empieza a hacer cosas guays
 
