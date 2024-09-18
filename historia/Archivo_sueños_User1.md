@@ -214,14 +214,13 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 
 ## 28/03/2021 Boxeo, sexo y un loop
 
-> *Resumen: bastante sexo y mientras lo hacía, la primera vez me convertía en Freddie Mercury. Combate de boxeo, compra zapatillas en londres y fiesta*
 
 *TRANSCRIPCIÓN del audio:*
 
 
 ### Escenario del ring
 
-buscando restos arqueológicos, no se si eran mios ... pero no dio frutos
+> buscando restos arqueológicos, no se si eran mios ... pero no dio frutos
 
 > Cobro de la orquesta y de repente estoy ...
 > (me estoy acordando de cosas. vales si)
