@@ -122,7 +122,7 @@ Los polis no les interesaba el asunto: ay no se qué, valo esto, si ... iros y o
 
 - yaa ya, es que al igual no os interesa hacer un parte
 
-Padre y adri se fueron. Yo me quedé con la policía para enseñar la furgoneta, para que vieran que no había nada que investigar dentro, que eramos gente normal que había tenido un accidente. No hacía falta que investigaran dos años la furgoneta.
+Padre y << Dry >> se fueron. Yo me quedé con la policía para enseñar la furgoneta, para que vieran que no había nada que investigar dentro, que eramos gente normal que había tenido un accidente. No hacía falta que investigaran dos años la furgoneta.
 
 Voy a enseñarle la furgoneta por dentro y abro una puerta
 
