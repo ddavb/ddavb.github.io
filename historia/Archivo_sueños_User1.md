@@ -259,8 +259,9 @@ estaban haciendo un karaoke improvisado
 por dentro pensaba que la gente no valoraba a una persona que se va a convertir en famosa.
 Que sin la fama puedes ser infravalorado
 
-despues de ese pensamiento me acuerdo de que tengo 200 euros en los bolsillos y me los presentes en la plaza con el karaoke nos animamos a dar una paseo por el centro de londres.
-Algunos se quedan atras y yo veo a deivid
+despues de ese pensamiento me acuerdo de que tengo 200 euros en los bolsillos.
+los presentes en la plaza con el karaoke nos animamos a dar una paseo por el centro de londres.
+Algunos se quedan atras y veo que deivid no se había quedado atrás
 
 es londres ... lugar por descubrir ... pero tenia confianza por haber ganado en el boxeo. No me iba a pasar nada malo
 
