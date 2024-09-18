@@ -61,7 +61,9 @@ Yo seguía con un: pero podría haber sido de << Dale Pomada >>, pero por tonter
 > Aquí le cuento una história que me hace perder el hilo del sueño:
 
 En ese momento todo mi alrededor cambió. Me encontraba reviviendo el recuerdo de un día con << areyenS >>, donde visitábamos el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" ...
+
 > Ese recuerdo en la vida real nunca existió, pero en el sueño lo vivo como un recuerdo
+
 ... era que yo tenía un movil en la mano y le estaba contando a la gata de S en una llamada la historia.
 
 El lugar era un poco chungo. A las afueras de una nave medio derruida, con descampado por los alrededores y desniveles con arena y cables y vigas tirados de cualquier manera. Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, canela de la arena, gris azulado por los postes de electricidad ...
