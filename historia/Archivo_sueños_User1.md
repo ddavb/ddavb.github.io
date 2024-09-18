@@ -27,13 +27,15 @@ Cuando llegué a ticana entré y era una oficina del ayuntamiento pero con alma 
 Había que cojer tiket y estaba toda la sala llena, también las ventanillas para atender a la gente.
 La gente cojía los tikets de 4 en 4 y yo también lo hice cuando se me acabó la amabilidad y tuve la oportunidad de poner la mano para arrancar de cuajo un fajo de tickets.
 
-- El dos
-
-- El cuatro y el 5
-
-- El 3, el 7 y el 8
-
-- El 2 y el tres
+> no recuerdo esto pero fue algo así:
+>
+> - El dos
+>
+> - El cuatro y el 5
+>
+> - El 3, el 7 y el 8
+>
+> - El 2 y el tres
 
 Me lanzo a una ventanilla que estaba vacía y digo YO!
 Menudo espectáculo pensé.
