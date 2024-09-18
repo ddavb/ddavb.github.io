@@ -12,7 +12,7 @@
  
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
 
-## 18/09/2024 Para recordar haga cola
+## 18/09/2024 Para recordar haga la cola
 
 Caminando por la av. papa luna veía de lejos a < R-MIR >.
 Me había visto pero no quería saludar hasta estar cerca.
