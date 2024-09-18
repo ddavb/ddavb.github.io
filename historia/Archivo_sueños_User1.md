@@ -1,6 +1,8 @@
 # SUEÑOS crudos, por editar
 
-  - [Fragmento chino](#16092024-Fragmento-chino)
+
+  - [Para recordar haga la cola](#18092024-Para-recordar-haga-la-cola)
+  - [Fragmento chino](#17092024-Fragmento-chino)
   - [Parte policial](#11092024-Parte-policial)
   - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal-y-un-maton)
   - [Un problema que se resuelve solo](#27082024-Un-problema-que-se-resuelve-solo)
@@ -10,7 +12,68 @@
  
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
 
-## 16/09/2024 Fragmento chino
+## 18/09/2024 Para recordar haga cola
+
+Caminando por la av. papa luna veía de lejos a < R-MIR >.
+Me había visto pero no quería saludar hasta estar cerca.
+Ella parecía que estaba buscando algo
+
+- Pues es que me tendría que haber llegado un coche pero por tamaño no lo han podido dejar - dijo
+
+La calle estaba desierta pero todos los aparcamientos eran zona para el autobús y zona amarilla
+
+Asumo que no podía ayudar y me fuí.
+Cuando llegué a ticana entré y era una oficina del ayuntamiento pero con alma de pescadería.
+Había que cojer tiket y estaba toda la sala y las taquillas llenas.
+La gente cojía los tikets de 4 en 4 y yo también lo hice cuando me dejaron poner la mano para arrancar de cuajo un fajo de tickets.
+
+- El dos
+
+- El cuatro y el 5
+
+- El 3, el 7 y el 8
+
+- El 2 y el tres
+
+Me lanzo a una ventanilla que estaba vacía y digo YO! Menudo espectáculo pensé.
+Me fijo en quién me atendia y era la youtuber gata de Schrödinger (no me sé su nombre real).
+
+- ¿Qué tal? ¿Qué alegría no de ser *medio trabajador parcial de timpo completo*?
+
+> A mi me sorprendió que supiera eso de mi, pero claro, tenía la base de datos de mi vida laboral en el ordenador.
+
+- Eso es equivalente a un B2 de inglés - me dijo
+
+Sí, es una pena que no haya hecho los examenes por que ahora tendría el título. Creo que tengo el B1. O ni eso tampoco. - dije tímido
+Ella valoraba lo práctico antes que un título.
+
+Hablamos de la orquesta por mis datos laborales, pero ella me conocía de más cosas. De un concierto del que yo también me acordaba.
+El concierto salió en la tele y habían más grupos.
+Estaba contento por que me conociera y me recordara ese concierto, pero me daba un poco de pena que el concierto sea con la orquesta y no con algún grupo que tuve.
+Me hubiera gustado que me dijera, sí te vi con < Dale-Pomada > tocando < Me-voy-a-comprar-unos-Chetoos>
+
+> Le empecé a contar cosas de ese día, me salía de dentro.
+
+- Pues el fragmento del concierto que salió en la tele, que fue previo al fragmento del concierto de Lèpoka, fue de la orquesta < TSu(per)namic >. - Dije mientras ella hacía muecas para transmitirme que ya lo sabía. Lo he visto me dijo.
+Yo seguía con un: pero podría haber sido de < Dale-Pomada >, pero por tonterías no lo fué.
+
+> Aquí le conté una história que me hizo perder el hilo del sueño
+
+En ese momento todo mi alrededor cambió, y me encontraba reviviendo el recuerdo de un día con << areyenS >>, donde visitábamos el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" era que yo tenía un movil en la mano y le estaba contando a la gata de S en una llamada la historia.
+
+El lugar era un poco chungo. A las afueras de una nave medio derruida, con descampado por los alrededores y desniveles con arena y cables y vigas tirados de cualquier manera. Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, canela de la arena, gris azulado por los postes de electricidad ...
+Yo por teléfono ya había dicho que al final no tocamos por que < Zulus-Pitarch > no le pareció buena idea.
+Que podríamos haber grabado todo con video y audio y que fue una pena no habernos puesto de acuerdo.
+< areyenS > asistía con ímpetu.
+
+Mientras revivía el recuerdo, yo y << areyenS>> nos daba rabia porq a nosotros si que nos hubiera gustado tocar.
+Ibamos caminando por el lugar en cuestión, con un pedo tremendo. Bajando por un desnivel, <areyenS> dió un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una. Yo tenía que hacer lo mismo pero con la borrachera fui con sumo cuidado, a cuatro patas y despacito. A mitad de la distancia me caí de espaldas, pero el suelo estaba cerca y fue como caer de una hamaca encima de la suave arena. El resto de desnivel lo bajé como si fuera un tobogán.
+
+Mientras seguimos caminando, poco a poco voy abriendo los ojos secos por no haber bebido suficiente agua
+
+
+
+## 17/09/2024 Fragmento chino
 
 cena familiar y mi padre hace algo torpe con lo que le hechamos la bronca
 
