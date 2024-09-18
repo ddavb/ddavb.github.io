@@ -151,7 +151,11 @@ Voy al hospital, yo estoy bien, y la familia de los graves está destrozada. Nos
 
 Al salir vuelvo andando hasta benicarlo. Hay un paso de cebra en Neptuno y se esta liando porq los coches no paran.
 
-Voy a cruzar y a pararme en medio para que la gente pueda pasar, y hay un peaton que esta aso iado con un coche para increpar a los peatones. Uno de los peatones lo sabe y le vacila … sigue la conversacionmiemtras caminamos y el increpador hace de maton … (es << amigo huracán MP >>) y es bastante original dialécticamente
+Voy a cruzar y a pararme en medio para que la gente pueda pasar.
+Había un señor mayor y así le podría ayudar a cruzar.
+Sin embargo hay otro peaton que está asociado con un coche para hacer de matón e increpar al resto de personas que bloqueen al mafioso que iba en el coche.
+El peaton señor mayor lo sabe y vacila al matón … la conversacion bulla chascarrillos entre estos dos sujetos continua miemtras caminamos.
+El increpador hace de maton … (es << amigo huracán MP >>) y es bastante original dialécticamente
 
 Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no se explica con las palabras de la conversación.
 Habian muchas insinuaciones y lenguaje no verbal
