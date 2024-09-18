@@ -67,7 +67,7 @@ En ese momento todo mi alrededor cambió. Me encontraba reviviendo el recuerdo d
 ... era que yo tenía un movil en la mano y le estaba contando a la gata de S en una llamada la historia mientras la revivía.
 
 El lugar era un poco chungo. A las afueras de una nave medio derruida, con descampado por los alrededores y desniveles con arena y cables y vigas tirados de cualquier manera. Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, canela de la arena, gris azulado por los postes de electricidad ...
-Yo por teléfono ya había dicho que al final no tocamos por que << Z-Pitarch >> no le pareció buena idea.
+Yo por teléfono ya había dicho que al final no tocamos por que << Za Patero >> no le pareció buena idea.
 Que podríamos haber grabado todo con video y audio y que fue una pena no habernos puesto de acuerdo.
 < areyenS > asentía con ímpetu.
 
