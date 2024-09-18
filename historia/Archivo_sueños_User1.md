@@ -76,7 +76,7 @@ El resto de desnivel lo bajé como si fuera un tobogán.
 
 Mientras seguimos caminando, poco a poco voy abriendo los ojos secos por no haber bebido suficiente agua
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/5PS.jpg)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/5-PS.jpg)
 
 ## 17/09/2024 Fragmento chino
 
