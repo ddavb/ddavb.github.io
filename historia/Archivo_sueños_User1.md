@@ -56,20 +56,20 @@ Me hubiera gustado que me dijera, sí te vi con < Dale-Pomada > tocando < Me-voy
 > Le empecé a contar cosas de ese día, me salía de dentro.
 
 - Pues el fragmento del concierto que salió en la tele, que fue previo al fragmento del concierto de Lèpoka, fue de la orquesta < TSu(per)namic >. - Dije mientras ella hacía muecas para transmitirme que ya lo sabía. Lo he visto me dijo.
-Yo seguía con un: pero podría haber sido de < Dale-Pomada >, pero por tonterías no lo fué.
+Yo seguía con un: pero podría haber sido de << Dale Pomada >>, pero por tonterías no lo fué.
 
 ### Aquí le cuento una história que me hace perder el hilo del sueño:
 
 En ese momento todo mi alrededor cambió. Me encontraba reviviendo el recuerdo de un día con << areyenS >>, donde visitábamos el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" era que yo tenía un movil en la mano y le estaba contando a la gata de S en una llamada la historia.
 
 El lugar era un poco chungo. A las afueras de una nave medio derruida, con descampado por los alrededores y desniveles con arena y cables y vigas tirados de cualquier manera. Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, canela de la arena, gris azulado por los postes de electricidad ...
-Yo por teléfono ya había dicho que al final no tocamos por que < Zulus-Pitarch > no le pareció buena idea.
+Yo por teléfono ya había dicho que al final no tocamos por que << Z-Pitarch >> no le pareció buena idea.
 Que podríamos haber grabado todo con video y audio y que fue una pena no habernos puesto de acuerdo.
 < areyenS > asistía con ímpetu.
 
-Mientras revivía el recuerdo, yo y << areyenS>> nos daba rabia porq a nosotros si que nos hubiera gustado tocar.
+Mientras revivía el recuerdo, yo y << areyenS >> nos daba rabia porq a nosotros si que nos hubiera gustado tocar.
 Ibamos caminando por el lugar en cuestión, con un pedo tremendo.
-Bajando por un desnivel, <areyenS> dió un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
+Bajando por un desnivel, << areyenS >> dió un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
 Yo tenía que hacer lo mismo pero con la borrachera fui con sumo cuidado, a cuatro patas y despacito.
 A mitad de la distancia me caí de espaldas, pero el suelo estaba cerca y fue como caer de una hamaca encima de la suave arena.
 El resto de desnivel lo bajé como si fuera un tobogán.
@@ -103,7 +103,7 @@ Intenté avisar de que había un semaforo en rojo. Cojo el volante, empeciezo a 
 
 pongo el freno de mano, empezamos a derrapar, nos chocamos ... una locura
 Yo que estaba en schock, pensaba ¿qué cojones acaba de pasar? mi padre no es así, en serio ¿qué ha pasado?
-Cabreadísimo se lo intento explicar a mi hermano, intento hablar con mi padre, !intento hablar! pero no podía. Estaba afónico de tanto gritar.
+Cabreadísimo se lo intento explicar a << Dry >>, intento hablar con mi padre, !intento hablar! pero no podía. Estaba afónico de tanto gritar.
 Drama.
 
 Pienso que igual hay que hacer un parte, llamar a la policía ... hacer algo
@@ -155,7 +155,7 @@ Voy a cruzar y a pararme en medio para que la gente pueda pasar.
 Había un señor mayor y así le podría ayudar a cruzar.
 Sin embargo hay otro peaton que está asociado con un coche para hacer de matón e increpar al resto de personas que bloqueen al mafioso que iba en el coche.
 El peaton señor mayor lo sabe y vacila al matón … la conversacion bulla chascarrillos entre estos dos sujetos continua miemtras caminamos.
-El increpador hace de maton … (es << amigo huracán MP >>) y es bastante original dialécticamente
+El increpador hace de maton … (es << huracán MP >>) y es bastante original dialécticamente
 
 > Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no se explica con las palabras de la conversación.
 > Habian muchas insinuaciones y lenguaje no verbal
