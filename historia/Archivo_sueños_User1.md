@@ -157,8 +157,8 @@ Sin embargo hay otro peaton que está asociado con un coche para hacer de matón
 El peaton señor mayor lo sabe y vacila al matón … la conversacion bulla chascarrillos entre estos dos sujetos continua miemtras caminamos.
 El increpador hace de maton … (es << amigo huracán MP >>) y es bastante original dialécticamente
 
-Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no se explica con las palabras de la conversación.
-Habian muchas insinuaciones y lenguaje no verbal
+> Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no se explica con las palabras de la conversación.
+> Habian muchas insinuaciones y lenguaje no verbal
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
 
