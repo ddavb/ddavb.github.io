@@ -58,9 +58,9 @@ Me hubiera gustado que me dijera, sí te vi con < Dale-Pomada > tocando < Me-voy
 - Pues el fragmento del concierto que salió en la tele, que fue previo al fragmento del concierto de Lèpoka, fue de la orquesta < TSu(per)namic >. - Dije mientras ella hacía muecas para transmitirme que ya lo sabía. Lo he visto me dijo.
 Yo seguía con un: pero podría haber sido de < Dale-Pomada >, pero por tonterías no lo fué.
 
-> Aquí le conté una história que me hizo perder el hilo del sueño
+### Aquí le cuento una história que me hace perder el hilo del sueño:
 
-En ese momento todo mi alrededor cambió, y me encontraba reviviendo el recuerdo de un día con << areyenS >>, donde visitábamos el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" era que yo tenía un movil en la mano y le estaba contando a la gata de S en una llamada la historia.
+En ese momento todo mi alrededor cambió. Me encontraba reviviendo el recuerdo de un día con << areyenS >>, donde visitábamos el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" era que yo tenía un movil en la mano y le estaba contando a la gata de S en una llamada la historia.
 
 El lugar era un poco chungo. A las afueras de una nave medio derruida, con descampado por los alrededores y desniveles con arena y cables y vigas tirados de cualquier manera. Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, canela de la arena, gris azulado por los postes de electricidad ...
 Yo por teléfono ya había dicho que al final no tocamos por que < Zulus-Pitarch > no le pareció buena idea.
@@ -68,7 +68,11 @@ Que podríamos haber grabado todo con video y audio y que fue una pena no habern
 < areyenS > asistía con ímpetu.
 
 Mientras revivía el recuerdo, yo y << areyenS>> nos daba rabia porq a nosotros si que nos hubiera gustado tocar.
-Ibamos caminando por el lugar en cuestión, con un pedo tremendo. Bajando por un desnivel, <areyenS> dió un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una. Yo tenía que hacer lo mismo pero con la borrachera fui con sumo cuidado, a cuatro patas y despacito. A mitad de la distancia me caí de espaldas, pero el suelo estaba cerca y fue como caer de una hamaca encima de la suave arena. El resto de desnivel lo bajé como si fuera un tobogán.
+Ibamos caminando por el lugar en cuestión, con un pedo tremendo.
+Bajando por un desnivel, <areyenS> dió un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
+Yo tenía que hacer lo mismo pero con la borrachera fui con sumo cuidado, a cuatro patas y despacito.
+A mitad de la distancia me caí de espaldas, pero el suelo estaba cerca y fue como caer de una hamaca encima de la suave arena.
+El resto de desnivel lo bajé como si fuera un tobogán.
 
 Mientras seguimos caminando, poco a poco voy abriendo los ojos secos por no haber bebido suficiente agua
 
