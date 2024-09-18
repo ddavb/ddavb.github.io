@@ -24,8 +24,8 @@ La calle estaba desierta pero todos los aparcamientos eran zona para el autobús
 
 Asumo que no podía ayudar y me fuí.
 Cuando llegué a ticana entré y era una oficina del ayuntamiento pero con alma de pescadería.
-Había que cojer tiket y estaba toda la sala y las taquillas llenas.
-La gente cojía los tikets de 4 en 4 y yo también lo hice cuando me dejaron poner la mano para arrancar de cuajo un fajo de tickets.
+Había que cojer tiket y estaba toda la sala llena, también las ventanillas para tender a la gente.
+La gente cojía los tikets de 4 en 4 y yo también lo hice cuando se me acabó la amabilidad y tuve la oportunidad de poner la mano para arrancar de cuajo un fajo de tickets.
 
 - El dos
 
@@ -37,7 +37,7 @@ La gente cojía los tikets de 4 en 4 y yo también lo hice cuando me dejaron pon
 
 Me lanzo a una ventanilla que estaba vacía y digo YO!
 Menudo espectáculo pensé.
-Me fijo en quién me atendia y era la youtuber gata de Schrödinger (no me sé su nombre real).
+Me fijo en quién me atendería en esa ventanilla y era la youtuber gata de Schrödinger (no me sé su nombre real).
 
 - ¿Qué tal? ¿Qué alegría no de ser *medio trabajador parcial de timpo completo*?
 
@@ -46,7 +46,7 @@ Me fijo en quién me atendia y era la youtuber gata de Schrödinger (no me sé s
 - Eso es equivalente a un B2 de inglés - me dijo
 
 - Sí, es una pena que no haya hecho los examenes por que ahora tendría el título. Creo que tengo el B1. O ni eso tampoco. - dije tímido
-Ella valoraba lo práctico antes que un título.
+Ella me hizo entender que valoraba lo práctico antes que un título.
 
 Hablamos de la orquesta por mis datos laborales, pero ella me conocía de más cosas. De un concierto del que yo también me acordaba.
 El concierto salió en la tele y habían más grupos.
