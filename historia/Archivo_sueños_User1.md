@@ -154,7 +154,7 @@ Al salir vuelvo andando hasta benicarlo. Hay un paso de cebra en Neptuno y se es
 Voy a cruzar y a pararme en medio para que la gente pueda pasar, y hay un peaton que esta aso iado con un coche para increpar a los peatones. Uno de los peatones lo sabe y le vacila … sigue la conversacionmiemtras caminamos y el increpador hace de maton … (es << amigo huracán MP >>) y es bastante original dialécticamente
 
 Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no se explica con las palabras de la conversación.
-Habian muchas insinuaciones y lenguaje verbal
+Habian muchas insinuaciones y lenguaje no verbal
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
 
