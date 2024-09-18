@@ -1,7 +1,7 @@
 # SUEÑOS crudos, por editar
 
 
-  - [Para recordar haga la cola](#18092024-Para-recordar-haga-la-cola)
+  - [Para recordar, haga la cola](#18092024-Para-recordar-haga-la-cola)
   - [Fragmento chino](#17092024-Fragmento-chino)
   - [Parte policial](#11092024-Parte-policial)
   - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal-y-un-maton)
@@ -12,7 +12,7 @@
  
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
 
-## 18/09/2024 Para recordar haga la cola
+## 18/09/2024 Para recordar, haga la cola
 
 Caminando por la av. papa luna veía de lejos a < R-MIR >.
 Me había visto pero no quería saludar hasta estar cerca.
