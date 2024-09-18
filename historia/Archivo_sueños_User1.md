@@ -86,57 +86,40 @@ Me despierto rápido y tardo en asimilar que era un sueño
 
 ## 11/09/2024 Parte policial
 
-he soñado que iba con padre y hermano con una furgoneta de viaje
+> iba con padre y hermano con una furgoneta de viaje. No, con el peugeot.
+> veniamos de algún sitio y ibamos a un sitio indeterminado
 
-no, con el peujeot
+De donde volviamos, nos mandaron un mensaje, y mi padre que conducia se puso a leerlo y dejó los mandos del volante
+Intenté avisar de que había un semaforo en rojo. Cojo el volante, empeciezo a esquivar coches.
 
-veniamos de algún sitio y ibamos a un sitio indeterminado
+- ¿PADRE QUE HACES?, presta atención ¡ COJE EL VOLANTE !
 
-de donde volviamos, mandaron un mensaje dos, y mi padre que conducia se puso a verlo y dejó los mandos del volante
-
-intenté avisar de que había un semaforo en rojo
-
-cojí el volante, empecé a esquivar coches
-
-- PADRE QUE HACES, presta atención COJE EL VOLANTE
-
-el responde, 
-- pero si ya sabes donde está el embrage (hazlo tú)
+- pero si ya sabes donde está el embrage - dijo, con intención de decir hazlo tú
 
 pongo el freno de mano, empezamos a derrapar, nos chocamos ... una locura
+Yo que estaba en schock, pensaba ¿qué cojones acaba de pasar? mi padre no es así, en serio ¿qué ha pasado?
+Cabreadísimo se lo intento explicar a mi hermano, intento hablar con mi padre, !intento hablar! pero no podía. Estaba afónico de tanto gritar.
+Drama.
 
-yo estaba en schock, pensaba:
-- qué cojones acaba de pasar? mi padre no es así, en serio que ha pasado?
+Pienso que igual hay que hacer un parte, llamar a la policía ... hacer algo
+Ellos me dicen vale vale
 
-yo cabreadísimo se lo intento explicar con mi hermano, intento hablar con mi padre, intento hablar! pero no podía, estaba afónico de tanto gritar
+Yo rayadísimo. Empiezo a pensar que he de decir a la policía por que si digo la verdad, al igual meto en problemas a mi padre.
+Pero esq algo hay que decir.
 
-drama
+Los polis no les interesaba el asunto: ay no se qué, valo esto, si ... iros y os avisamos
 
-pienso que igual hay que hacer un parte, llamar a la policía. hacer Algo
+- ¿Pero que pasa con nuestra furgoneta? - pregunto
 
-me dicen:
-- vale vale
+- Si hacéis un parte se quedará dos años aquí ... - muecas de los polis de que quizá lo correcto no es hacer lo correcto
 
-yo rayadísimo, empiezo a pensar que he de decir a la policía por que si digo la verdad, al igual le meto en problemas.
-Pero algo hay que decir
+- ¿Como que dos años?
 
-estan los polis de chachara:
-- ay no se que, valo esto, iros y os avisamos
+- yaa ya, es que al igual no os interesa hacer un parte
 
-yo pensaba,
-- pero y que pasa con nuestra furgoneta? pregunto
+Padre y adri se fueron. Yo me quedé con la policía para enseñar la furgoneta, para que vieran que no había nada que investigar dentro, que eramos gente normal que había tenido un accidente. No hacía falta que investigaran dos años la furgoneta.
 
-- si hacéis un parte se quedará dos años aquí ... - muecas de los polis de que quizá lo correcto no es hacer lo correcto
-
-- pero como que dos años?
-
-- yaa ya, es que al igual no os interesa hacer un parte - polis
-
-padre y adri se fueron, yo me quedé con la policía para enseñar la furgoneta, para que vieran que no había nada que investigar dentro, que eramos gente normal que había tenido un accidente. No hacía falta que investigaran dos años la furgoneta.
-
-Voy a enseñarle la furgoneta por dentro:
-
-abro una puerta
+Voy a enseñarle la furgoneta por dentro y abro una puerta
 
 - aquí hay mochilas con cosas (estábamos de viaje) - digo
 
@@ -146,9 +129,7 @@ abro otra puerta
 
 abro otra puerta y hay más revistas. Esta vez revistas porno. Una portada de tetas, otra con título con CULONAS
 
-- BFF - digo
-
-- esto ... bueno esto parece más raro. En todo caso no es mío
+- BFF esto ... bueno esto parece más raro. En todo caso no es mío.
 
 
 
