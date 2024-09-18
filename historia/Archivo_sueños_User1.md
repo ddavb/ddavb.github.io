@@ -206,7 +206,7 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 
 ## 28/03/2021 Boxeo, sexo y un loop
 
-- *Resumen: follaba mucho y mientras lo hacía me convertía en Freddie Mercury. Combate de boxeo, compra zapatillas en londres y fiesta*
+- *Resumen: follaba mucho y mientras lo hacía, la primera vez me convertía en Freddie Mercury. Combate de boxeo, compra zapatillas en londres y fiesta*
 
 *TRANSCRIPCIÓN del audio:*
 
@@ -247,8 +247,7 @@ el escenario cambia continuamente y el jacuzzy, que ahora es una piscina de pied
 Esta´n ahora también amigos por ahí cerca, a mi amiga le empiezo a contar que es muy dificil ser freddie mercury porq la gente no te entiende y 
 
 > En algún momento me doy cuenta de que esta escena es una demostración de que freddie mercury follaba.
-> Pero en el sueño yo tenía el cuerpo de FM.
-> yo era freddie mercury, pero mientras tenía sexo con la chica habían momentos de tercera persona donde yo me abstraía de ese cuerpo y observaba desde fuera
+> Pero en el sueño yo tenía el cuerpo de FM, y mientras tenía sexo con la chica se intercalaban  momentos de tercera persona donde yo me abstraía de ese cuerpo y observaba desde fuera
 
 a los amigos los veia en una plaza como se divertian, llena de cesped en mitad de londres
 estaban haciendo un karaoke improvisado
@@ -271,6 +270,8 @@ Dudo de si lo que realmente quiero es eso
 Paso de las zapatillas finalmente y vuelvo a la piscina con otra gente.
 Había una pareja que me recuerda el coito anterior.
 Eso hace que aparezca la chica sexy y volvamos a darnos placer
+
+> esta vez fue normal, fui completamente yo
 
 
 ### Escenario de un recinto pueblerino
