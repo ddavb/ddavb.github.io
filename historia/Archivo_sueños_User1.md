@@ -15,8 +15,8 @@
 ## 18/09/2024 Para recordar, haga la cola
 
 Caminando por la av. papa luna veía de lejos a < R-MIR >.
-Me había visto pero no quería saludar hasta estar cerca.
-Ella parecía que estaba buscando algo
+Me había visto pero no quería saludarla hasta estar cerca.
+Ella parecía que estaba buscando algo por el suelo.
 
 - Pues es que me tendría que haber llegado un coche pero por tamaño no lo han podido dejar - dijo
 
@@ -45,12 +45,12 @@ Me fijo en quién me atendería en esa ventanilla y era la youtuber gata de Schr
 
 - Eso es equivalente a un B2 de inglés - me dijo
 
-- Sí, es una pena que no haya hecho los examenes por que ahora tendría el título. Creo que tengo el B1. O ni eso tampoco. - dije tímido
+- Sí, es una pena que no haya hecho los examenes por que ahora tendría el título. Creo que tengo el B1. O ni eso tampoco, no lo recuerdo. - dije tímido
 Ella me hizo entender que valoraba lo práctico antes que un título.
 
 Hablamos de la orquesta por mis datos laborales, pero ella me conocía de más cosas. De un concierto del que yo también me acordaba.
 El concierto salió en la tele y habían más grupos.
-Estaba contento por que me conociera y me recordara ese concierto, pero me daba un poco de pena que el concierto sea con la orquesta y no con algún grupo que tuve.
+Estaba contento por que me conociera y me recordara de ese concierto, pero me daba un poco de pena que fuera con la orquesta y no con algún grupo guay que tuve.
 Me hubiera gustado que me dijera, sí te vi con < Dale-Pomada > tocando < Me-voy-a-comprar-unos-Chetoos>
 
 > Le empecé a contar cosas de ese día, me salía de dentro.
@@ -58,7 +58,7 @@ Me hubiera gustado que me dijera, sí te vi con < Dale-Pomada > tocando < Me-voy
 - Pues el fragmento del concierto que salió en la tele, que fue previo al fragmento del concierto de Lèpoka, fue de la orquesta < TSu(per)namic >. - Dije mientras ella hacía muecas para transmitirme que ya lo sabía. Lo he visto me dijo.
 Yo seguía con un: pero podría haber sido de << Dale Pomada >>, pero por tonterías no lo fué.
 
-### Aquí le cuento una história que me hace perder el hilo del sueño:
+> Aquí le cuento una história que me hace perder el hilo del sueño:
 
 En ese momento todo mi alrededor cambió. Me encontraba reviviendo el recuerdo de un día con << areyenS >>, donde visitábamos el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" era que yo tenía un movil en la mano y le estaba contando a la gata de S en una llamada la historia.
 
