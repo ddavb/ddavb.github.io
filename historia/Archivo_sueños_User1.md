@@ -47,12 +47,12 @@ Me fijo en quién me atendería en esa ventanilla y era la youtuber gata de Schr
 
 - Eso es equivalente a un B2 de inglés - me dijo
 
-- Sí, es una pena que no haya hecho los examenes por que ahora tendría el título. Creo que tengo el B1. O ni eso tampoco, no lo recuerdo. - dije tímido
+- Sí, es una pena que no haya hecho los exámenes por que ahora tendría el título. Creo que tengo el B1. O ni eso tampoco, no lo recuerdo. - dije tímido
 Ella me hizo entender que valoraba lo práctico antes que un título.
 
 Hablamos de la orquesta por mis datos laborales, pero ella me conocía de más cosas. De un concierto del que yo también me acordaba.
 El concierto salió en la tele y habían más grupos.
-Estaba contento por que me conociera y me recordara de ese concierto, pero me daba un poco de pena que fuera con la orquesta y no con algún grupo guay que tuve.
+Estaba contento por que me conociera y me recordara de ese concierto, aunque me daba un poco de pena que fuera con la orquesta y no con algún grupo guay que tuve.
 Me hubiera gustado que me dijera, sí te vi con < Dale-Pomada > tocando < Me-voy-a-comprar-unos-Chetoos>
 
 > Le empecé a contar cosas de ese día, me salía de dentro.
