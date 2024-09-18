@@ -211,10 +211,10 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 
 buscando restos arqueológicos, no se si eran mios ... pero no dio frutos
 
-Cobro de la orquesta y de repente estoy ...
-(me estoy acordando de cosas. vales si)
-... estoy en un ring que voy a pelearme con alguien, es la primera vez que me peleo y pensaba que iba a perder.
-No estaba nervioso
+> Cobro de la orquesta y de repente estoy ...
+> (me estoy acordando de cosas. vales si)
+> ... estoy en un ring que voy a pelearme con alguien, es la primera vez que me peleo y pensaba que iba a perder.
+> No estaba nervioso
 
 Tenia rabia, ganas de luchar, sensación de pelea.
 Son dos asaltos
@@ -242,10 +242,9 @@ estaba un poco rellena, tenía dos mamellas grandes y caídas (incido en que era
 el escenario cambia continuamente y el jacuzzy, que ahora es una piscina de piedra en mitad de una plaza pública con comercios.
 Esta´n ahora también amigos por ahí cerca, a mi amiga le empiezo a contar que es muy dificil ser freddie mercury porq la gente no te entiende y 
 
-En algún momento me doy cuenta de que esta escena es una demostración de que freddie mercury follaba.
-Pero en el sueño yo tenía el cuerpo de FM.
-
-yo era freddie mercury, pero mientras tenía sexo con la chica habían momentos de tercera persona donde yo me abstraía de ese cuerpo y observaba desde fuera
+> En algún momento me doy cuenta de que esta escena es una demostración de que freddie mercury follaba.
+> Pero en el sueño yo tenía el cuerpo de FM.
+> yo era freddie mercury, pero mientras tenía sexo con la chica habían momentos de tercera persona donde yo me abstraía de ese cuerpo y observaba desde fuera
 
 a los amigos los veia en una plaza como se divertian, llena de cesped en mitad de londres
 estaban haciendo un karaoke improvisado
@@ -263,7 +262,7 @@ con los 200 euros me voy a buscar un lugar para comprar zapatillas, porq porfin 
 Empiezo a ver tiendas y las zapas son caras.
 Dudo de si lo que realmente quiero es eso
 
-(voy recordando más cosas)
+> (voy recordando más cosas)
 
 Paso de las zapatillas finalmente y vuelvo a la piscina con otra gente.
 Había una pareja que me recuerda el coito anterior.
@@ -287,7 +286,7 @@ me hago amigo de un chino y empieza a hacer cosas guays
 
 depués volvemos a una antigua casa
 
-- la parte de la casa, teniamos que darle la vuelta al coche, pero el coche eran cuatro sillas en forma de cuadrado. Mi padre quería que le diera la vuelta pero yo no entendía que me pedía exactamente, por que no había coche,
+ la parte de la casa, teniamos que darle la vuelta al coche, pero el coche eran cuatro sillas en forma de cuadrado. Mi padre quería que le diera la vuelta pero yo no entendía que me pedía exactamente, por que no había coche,
 
 Me pongo a jugar al mario kart para desbloquear cre´ditos, que utilizaré para debloquear partes del coche, pienso en las ruedas para ponerselas a la silla, chasis, eje ... cualquier cosa.
 
