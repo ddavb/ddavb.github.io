@@ -132,7 +132,7 @@ abro otra puerta
 
 - aquí hay como revistas (me pregunto de donde habían salido). Parece raro pero tiene explicación, sólo son revistas - digo
 
-abro otra puerta y hay más revistas. Esta vez revistas porno. Una portada de tetas, otra con título con CULONAS
+abro otra puerta y hay más revistas. Esta vez revistas porno. Una portada de tetas, otra con el título CULONAS
 
 - BFF esto ... bueno esto parece más raro. En todo caso no es mío.
 
