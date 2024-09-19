@@ -94,7 +94,7 @@ caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueño
 
 Me despierto rápido y tardo en asimilar que era un sueño
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3643.JPG)
 
 
 
@@ -171,6 +171,8 @@ Más tarde estaba solo apoyado en un edificio de noche. Mirando el cielo veo dos
 Crucé la mirada con una pareja de adultos que estábamos expectantes para ver que pasaba.
 Resulta que era un juego de luces de un comercial de una marca de deportes. Habían tapado la luna un rato para tener más impacto.
 Cuando se fueron las luces se vio la luna. Aunque no me fijé en la luna hasta que paso todo esto, me molestó el comercial.
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
 
 
