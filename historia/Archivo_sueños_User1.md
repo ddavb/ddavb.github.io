@@ -317,7 +317,7 @@ Eso hace que aparezca la chica sexy y volvamos a darnos placer
 
 ### Escenario de un recinto pueblerino
 
-> ANTES o después ... no se, soñé con un videojuego chino, o una situación que se va repitiendo
+> ANTES o después ... no se (que no será este un sueño de otro dia? xd), soñé con un videojuego chino, o una situación que se va repitiendo
 > Era como si unos cuantos amigos quedaran para pasar una tarde noche, pero no de fiesta
 
 encuentran un lugar abandonado, y dentro de ese lugar hay un circuito (un tobogán chuingo del que me tiré) al final del tunel había un bar karaoke con piscinas de bolas, medio destrozado y que solo servían cerveza
