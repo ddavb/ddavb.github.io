@@ -4,10 +4,12 @@
   - [Para recordar, haga la cola](#18092024-Para-recordar-haga-la-cola)
   - [Fragmento chino](#17092024-Fragmento-chino)
   - [Parte policial](#11092024-Parte-policial)
+  - [Molestias](#07092024-Molestias)
   - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal-y-un-maton)
   - [Un problema que se resuelve solo](#27082024-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#27082024-Terror-acolchado)
   - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
+
 
  
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
@@ -88,11 +90,12 @@ Mientras seguimos caminando, poco a poco voy abriendo los ojos secos por no habe
 
 cena familiar y mi padre hace algo torpe con lo que le hechamos la bronca
 
-caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueños. son dos chinos y estaban fumando. me enseñan unas hamburguesas que tenían una pinta brutal ... tremenda ... pienso que es un buen lugar para tener en cuenta y le mando una foto del sitio a << M Galápagos >>. En ese momento veo que me está escribiendo por instagram para contarme que ha soñado. 
+caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueños. son dos chinos y estaban fumando. me enseñan unas hamburguesas que tenían una pinta brutal ... tremenda ... pienso que es un buen lugar para tener en cuenta y le mando una foto del sitio a << M Gal >>. En ese momento veo que me está escribiendo por instagram para contarme que ha soñado. 
 
 Me despierto rápido y tardo en asimilar que era un sueño
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
+
 
 
 ## 11/09/2024 Parte policial
@@ -141,6 +144,33 @@ abro otra puerta
 abro otra puerta y hay más revistas. Esta vez revistas porno. Una portada de tetas, otra con el título CULONAS
 
 - BFF esto ... bueno esto parece más raro. En todo caso no es mío.
+
+
+
+## 07/09/2024 Molestias
+
+Una noche pescando con << amigo J >>, yo le insistía que tenía que regular la presión de las ruedas del coche.
+A pesar de argumentarme que estoy equivocado, lo hace y se da cuenta de que ahora es más feliz.
+
+
+Estaba sentado en una acera, parecía el centro de una gran ciudad. Edificios señoriales y las calles sucias y aún por peatonalizar.
+Veía gente pasar con tabaco y me apetecía uno. Aguanté o me olvidé, no se.
+
+
+Estoy en el centro comercial Benicarló (pero diferente) con << M Gal >>
+Íbamos a una tienda y en la tienda estaba el ex de segurata.
+Ella fue a hablar con el y luego volvieron los dos, hablé con el de guay pero era incómodo.
+
+Fuimos a cenar, aunque lo único relacionado con una cena es que estábamos en una mesa sentados, no había comida.
+Me enseña un video donde salen marge y lisa. Marge le tapa los ojos con las manos y lisa tenía que adivinar los pensamientos de marge.
+El vídeo me lo enseñaba para transmitirme esa idea, que tenía que leerle la mente y no me iba a decir ciertas cosas.
+Después me bloqueó de la vida y me molestó.
+
+
+Más tarde estaba solo apoyado en un edificio de noche. Mirando el cielo veo dos luces en movimiento que van en la misma dirección.
+Crucé la mirada con una pareja de adultos que estábamos expectantes para ver que pasaba.
+Resulta que era un juego de luces de un comercial de una marca de deportes. Habían tapado la luna un rato para tener más impacto.
+Cuando se fueron las luces se vio la luna. Aunque no me fijé en la luna hasta que paso todo esto, me molestó el comercial.
 
 
 
