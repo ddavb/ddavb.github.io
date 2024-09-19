@@ -241,16 +241,15 @@ en el descanso me doy cuenta de que tengo cosas en los bolsillos, pasta de la or
 
 lo utilizo de escusa para hablar/ligar con una chica del público, veo que el jefe de la orquesta está en el público y cojo las cosas menos el dinero y se lo dejo a la chica
 
-empieza el combate y lo gano. el primer combate
-
-todo guay
+Empieza el combate y lo gano.
+Mi primer combate profesional.
+Todo guay
 
 
 ### Escenario del jacuzzy
 
-estaba en un jacuzzy con una amiga con la que tengo sexo y también conversación
-
-estaba un poco rellena, tenía dos mamellas grandes y caídas (incido en que eran dos porq al ser un sueño nunca se sabe)
+estoy en un jacuzzy con una amiga con la que tengo sexo y también conversación.
+Esta un poco rellena, tiene dos pechos grandes y caídos (incido en que eran dos porq al ser un sueño nunca se sabe)
 
 el escenario cambia continuamente y el jacuzzy, que ahora es una piscina de piedra en mitad de una plaza pública con comercios.
 Esta´n ahora también amigos por ahí cerca, a mi amiga le empiezo a contar que es muy dificil ser freddie mercury porq la gente no te entiende y 
@@ -264,9 +263,9 @@ estaban haciendo un karaoke improvisado
 por dentro pensaba que la gente no valoraba a una persona que se va a convertir en famosa.
 Que sin la fama puedes ser infravalorado
 
-despues de ese pensamiento me acuerdo de que tengo 200 euros en los bolsillos.
+despues de ese pensamiento me acuerdo de que aún tengo el dinero en los bolsillos.
 los presentes en la plaza con el karaoke nos animamos a dar una paseo por el centro de londres.
-Algunos se quedan atras y veo que deivid no se había quedado atrás
+Algunos se quedan atras, y veo que deivid no
 
 es londres ... lugar por descubrir ... pero tenia confianza por haber ganado en el boxeo. No me iba a pasar nada malo
 
