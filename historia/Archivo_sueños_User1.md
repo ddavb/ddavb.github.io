@@ -94,7 +94,7 @@ caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueño
 
 Me despierto rápido y tardo en asimilar que era un sueño
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3643.JPG)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
 
 
 
@@ -198,7 +198,7 @@ El increpador hace de maton … (es << huracán MP >>) y es bastante original di
 > Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no se explica con las palabras de la conversación.
 > Habian muchas insinuaciones y lenguaje no verbal
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3643.JPG)
 
   
 ## 27/08/2024 Un problema que se resuelve solo 
