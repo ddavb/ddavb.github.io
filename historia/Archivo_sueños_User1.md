@@ -10,18 +10,19 @@
   - [Terror acolchado](#27082024-Terror-acolchado)
   - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
 
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
+
+
 
 ## 20/09/2024 Vacilador vacilado
 
 ### 1st round vacilador
 
-recuerdo al del saxo de la ludwig
+> recuerdo al del saxo de la ludwig ... pero nomás
 
-voy en una furgoneta y nos paran en un control policial/militar
-
+Voy en una furgoneta y nos paran en un control policial/militar.
 estabamos preocupados por que debíamos llevar algo ilegal o algo
-
-nos paran para realizar el control. Mientras pienso que sería genial que pasara algo para librarnos del control, explota algo a lo lejos.
+Mientras pienso que sería genial que pasara algo para librarnos del control, explota algo a lo lejos.
 Todos los que estaban en el control se van, no sin antes intercambiar palabras con un agente
 
 > debió de ser algo así la conversación:
@@ -30,19 +31,21 @@ Todos los que estaban en el control se van, no sin antes intercambiar palabras c
 
 - sí, y los huevos también - dije por mi parte
 
+
 Me fuí y acabo en una especie de escaleras de metro, donde estaba sentado << pújil >>. Cansado pero activo.
 Me pregunta si saldré de noche y le digo que no. El es RRPP o portero de algún sitio y se estaba pegando una fiesta del copón.
 Para cuando acaboó la conversación había un montón de gente sentada
 
 
-En algún momento aparezco en un bar. Estaba con el hermano de Pau pero estaba invalido
-
-Me preguntas sobre las oposiciones y yo ocntestaba. Me preguntaban si yo estaba bien. Me daba la sensación de que ellos pensaban que estaba triste por haber suspendido pero y o no habiá hecho exámenes hacía poco.
+En algún momento aparezco en un bar. Estaba con el hermano de << areyenS >> pero estaba invalido
+Me preguntas sobre las oposiciones y yo contestaba. Me preguntaban si yo estaba bien.
+Me daba la sensación de que ellos pensaban que estaba triste por haber suspendido pero y o no habiá hecho exámenes hacía poco.
 
 Esta conversación se alarga pero no me acuerdo de detalles.
 
-Luego estaba en casa en mi habitación con Dry y amigo J, jugando a la gamecube.
+Luego estaba en casa en mi habitación con << Dry >> y << amigoJ >>, jugando a la gamecube.
 De alguna forma me quedé sólo y del resto no me acuerdo
+
 
 ### 2nd round vacilado
 
@@ -55,10 +58,9 @@ estaba petadísimo todo. en la pasarela, al principio del todo justo al subir, e
 
 vamos nos dan una medalla y bajamos. yo pensaba en el dinero que habrá constado pero ... pa mi. hablamos con el jefe de la rquesta, toca irse para casa. un amigo se fue ultra rápido. me asomo a la calle doctor fleming? la de balaguer. veo a la derecha que hay un grupito de chicas en un portal que está saludando. miro a la izqauierda y hay otro grupido de chicos/chicas que devuelven el saludo. (pensé que me salubana a mi, y no)
 Cierro la puerta y pienso en irme a casa, miro el movil para ver si mi padre nos venía a recoger, pero como veo que es un lio decido ir andando.
-Aparece Ana de la carrera y me dice que no me vaya que aún es pronto. Le digo que me voy igualmente que ya lo he decidido. Doy un par de pasos aparecen las chicas de antes me dicen que no me vaya. Les digo lo mismo. Doy un par de pasos más. Miro atrás mientras una me repite que no me vaya y me enseña un poco los pechos. Sigo andando, pero vuelvo a mirar atrás. Ahora se le veía claramente los pechos. Sigo andando, y obviamente vuelvo a mirar atrás. Habían mas pechos en el aire. David no te vayaaas. Daviiid 
+Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le digo que me voy igualmente que ya lo he decidido. Doy un par de pasos aparecen las chicas de antes me dicen que no me vaya. Les digo lo mismo. Doy un par de pasos más. Miro atrás mientras una me repite que no me vaya y me enseña un poco los pechos. Sigo andando, pero vuelvo a mirar atrás. Ahora se le veía claramente los pechos. Sigo andando, y obviamente vuelvo a mirar atrás. Habían mas pechos en el aire. David no te vayaaas. Daviiid 
   
  
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
 
 ## 18/09/2024 Para recordar, haga la cola
 
