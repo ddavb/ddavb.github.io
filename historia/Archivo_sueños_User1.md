@@ -146,9 +146,6 @@ caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueño
 
 Me despierto rápido y tardo en asimilar que era un sueño
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
-
-
 
 ## 11/09/2024 Parte policial
 
@@ -197,7 +194,7 @@ abro otra puerta y hay más revistas. Esta vez revistas porno. Una portada de te
 
 - BFF esto ... bueno esto parece más raro. En todo caso no es mío.
 
-
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
 
 ## 07/09/2024 Molestias
 
