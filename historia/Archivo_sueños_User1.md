@@ -21,7 +21,7 @@
 > recuerdo al del saxo de la ludwig ... pero nomás
 
 Voy en una furgoneta y nos paran en un control policial/militar.
-estabamos preocupados por que debíamos llevar algo ilegal o algo
+estabamos preocupados por que debíamos llevar algo ilegal o algo.
 Mientras pienso que sería genial que pasara algo para librarnos del control, explota algo a lo lejos.
 Todos los que estaban en el control se van, no sin antes intercambiar palabras con un agente
 
@@ -32,8 +32,7 @@ Todos los que estaban en el control se van, no sin antes intercambiar palabras c
 - sí, y los huevos también - dije por mi parte
 
 
-> Me fuí y acabo en una especie de escaleras de metro, donde estaba sentado << pújil >>. Cansado pero activo.
-> Me pregunta si saldré de noche y le digo que no. El es RRPP o portero de algún sitio y se estaba pegando una fiesta del copón.
+> Me fuí y acabo en una especie de escaleras de metro, donde estaba sentado << pújil >>. Cansado pero activo, me pregunta si saldré de noche y le digo que no. El es RRPP o portero de algún sitio y se estaba pegando una semanita de. fiesta del copón, sin buscarlo.
 > Para cuando acaboó la conversación había un montón de gente sentada
 
 
