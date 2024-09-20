@@ -52,7 +52,7 @@ De alguna forma me quedé sólo y del resto no me acuerdo
 estaba en un recindo supergrande lleno  de gente.
 era como una entrega de premios privada de una orquesta. había pasarelas y gente animando, música, luces ...
 
-estaban a punto de llamar a los mñúsico para darles algún premio. me dicen a mi y adri de subir a recibir premios. Yo pienso que al no haber hecho la ttemporada de verano con esa orquesta, no me recía ese reconocimiento. había hecho algún bolo pero ya me lo había dejado. y adri tampoco lo merecía porq no tenía nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, pues que se fastidien.
+estaban a punto de llamar a los mñúsico para darles algún premio. me dicen a << Dry >> y a mi de subir a recibir premios. Yo pienso que al no haber hecho la ttemporada de verano con esa orquesta, no me recía ese reconocimiento. había hecho algún bolo pero ya me lo había dejado. y adri tampoco lo merecía porq no tenía nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, pues que se fastidien.
 
 estaba petadísimo todo. en la pasarela, al principio del todo justo al subir, estaba eufñorico y me pongo a bailar tektonic, cuatro/5 personas del público únicamente me ven bailar y les hace gracia
 
