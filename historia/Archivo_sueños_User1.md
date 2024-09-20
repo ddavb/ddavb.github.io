@@ -32,19 +32,19 @@ Todos los que estaban en el control se van, no sin antes intercambiar palabras c
 - sí, y los huevos también - dije por mi parte
 
 
-Me fuí y acabo en una especie de escaleras de metro, donde estaba sentado << pújil >>. Cansado pero activo.
-Me pregunta si saldré de noche y le digo que no. El es RRPP o portero de algún sitio y se estaba pegando una fiesta del copón.
-Para cuando acaboó la conversación había un montón de gente sentada
+> Me fuí y acabo en una especie de escaleras de metro, donde estaba sentado << pújil >>. Cansado pero activo.
+> Me pregunta si saldré de noche y le digo que no. El es RRPP o portero de algún sitio y se estaba pegando una fiesta del copón.
+> Para cuando acaboó la conversación había un montón de gente sentada
 
 
-En algún momento aparezco en un bar. Estaba con el hermano de << areyenS >> pero estaba invalido
-Me preguntas sobre las oposiciones y yo contestaba. Me preguntaban si yo estaba bien.
-Me daba la sensación de que ellos pensaban que estaba triste por haber suspendido pero y o no habiá hecho exámenes hacía poco.
+> En algún momento aparezco en un bar. Estaba con el hermano de << areyenS >> pero estaba invalido
+> Me preguntas sobre las oposiciones y yo contestaba. Me preguntaban si yo estaba bien.
+> Me daba la sensación de que ellos pensaban que estaba triste por haber suspendido pero y o no habiá hecho exámenes hacía poco.
 
-Esta conversación se alarga pero no me acuerdo de detalles.
+> Esta conversación se alarga pero no me acuerdo de detalles.
 
-Luego estaba en casa en mi habitación con << Dry >> y << amigoJ >>, jugando a la gamecube.
-De alguna forma me quedé sólo y del resto no me acuerdo
+> Luego estaba en casa en mi habitación con << Dry >> y << amigoJ >>, jugando a la gamecube.
+> De alguna forma me quedé sólo y del resto no me acuerdo
 
 
 ### 2nd round vacilado
