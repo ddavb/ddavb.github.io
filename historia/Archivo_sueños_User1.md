@@ -49,16 +49,18 @@ Todos los que estaban en el control se van, no sin antes intercambiar palabras c
 
 ### 2nd round vacilado
 
-estaba en un recindo supergrande lleno  de gente.
+estaba en un recindo muy grande y lleno de gente.
 era como una entrega de premios privada de una orquesta. había pasarelas y gente animando, música, luces ...
 
 estaban a punto de llamar a los mñúsico para darles algún premio. me dicen a << Dry >> y a mi de subir a recibir premios. Yo pienso que al no haber hecho la ttemporada de verano con esa orquesta, no me recía ese reconocimiento. había hecho algún bolo pero ya me lo había dejado. y adri tampoco lo merecía porq no tenía nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, pues que se fastidien.
 
 estaba petadísimo todo. en la pasarela, al principio del todo justo al subir, estaba eufñorico y me pongo a bailar tektonic, cuatro/5 personas del público únicamente me ven bailar y les hace gracia
 
-vamos nos dan una medalla y bajamos. yo pensaba en el dinero que habrá constado pero ... pa mi. hablamos con el jefe de la rquesta, toca irse para casa. un amigo se fue ultra rápido. me asomo a la calle doctor fleming? la de balaguer. veo a la derecha que hay un grupito de chicas en un portal que está saludando. miro a la izqauierda y hay otro grupido de chicos/chicas que devuelven el saludo. (pensé que me salubana a mi, y no)
+vamos nos dan una medalla y bajamos. yo pensaba en el dinero que habrá constado pero ... pa mi. hablamos con el jefe de la rquesta, toca irse para casa. un amigo se fue ultra rápido. me asomo a la calle doctor fleming? la de balaguer. veo a la derecha que hay un grupito de chicas en un portal que está saludando. miro a la izqauierda y hay otro grupido de chicos/chicas que devuelven el saludo.
+Pensé que me saludaban a mi.
+
 Cierro la puerta y pienso en irme a casa, miro el movil para ver si mi padre nos venía a recoger, pero como veo que es un lio decido ir andando.
-Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le digo que me voy igualmente que ya lo he decidido. Doy un par de pasos aparecen las chicas de antes me dicen que no me vaya. Les digo lo mismo. Doy un par de pasos más. Miro atrás mientras una me repite que no me vaya y me enseña un poco los pechos. Sigo andando, pero vuelvo a mirar atrás. Ahora se le veía claramente los pechos. Sigo andando, y obviamente vuelvo a mirar atrás. Habían mas pechos en el aire. David no te vayaaas. Daviiid 
+Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le digo que me voy igualmente que ya lo he decidido. Doy un par de pasos aparecen las chicas de antes me dicen que no me vaya. Les digo lo mismo. Doy un par de pasos más. Miro atrás mientras una chica me repite que no me vaya y me enseña un poco los pechos. Sigo andando, pero vuelvo a mirar atrás. Ahora se le veía claramente los pechos. Sigo andando y obviamente vuelvo a mirar atrás. Habían mas pechos en el aire y más voces diciendo David no te vayaaas. Daviiid 
   
  
 
