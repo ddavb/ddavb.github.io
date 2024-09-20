@@ -63,6 +63,8 @@ Cierro la puerta y pienso en irme a casa, miro el movil para ver si mi padre nos
 Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le digo que me voy igualmente que ya lo he decidido. Doy un par de pasos, aparecen las chicas de antes y me dicen que no me vaya. Les digo lo mismo. Doy un par de pasos más. Miro atrás mientras una chica me repite que no me vaya y me enseña un poco los pechos. Sigo andando y vuelvo a mirar atrás. Ahora se le veía claramente los pechos. Sigo andando y obviamente vuelvo a mirar atrás. Habían mas pechos en el aire y más voces diciendo David no te vayaaas. Daviiid 
   
  
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3643.JPG)
+
 
 ## 18/09/2024 Para recordar, haga la cola
 
@@ -247,8 +249,6 @@ El increpador hace de maton … (es << huracán MP >>) y es bastante original di
 
 > Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no se explica con las palabras de la conversación.
 > Habian muchas insinuaciones y lenguaje no verbal
-
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3643.JPG)
 
   
 ## 27/08/2024 Un problema que se resuelve solo 
