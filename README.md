@@ -2,7 +2,7 @@
 
 - Archivo anónimo de sueños. En proceso ...
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/7camino_casa.png)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/7AA.png)
 
 # AGRUPACIÓN:
 
