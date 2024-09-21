@@ -39,7 +39,7 @@ Todos los que estaban en el control se van, no sin antes intercambiar palabras c
 
 > En algún momento aparezco en un bar. Estaba con el hermano de << areyenS >> pero estaba invalido
 > Me preguntas sobre las oposiciones y yo contestaba. Me preguntaban si yo estaba bien.
-> Me daba la sensación de que ellos pensaban que estaba triste por haber suspendido pero y o no habiá hecho exámenes hacía poco.
+> Me daba la sensación de que ellos pensaban que estaba triste por haber suspendido pero y o no habiá hecho exámenes recientemente.
 
 > Esta conversación se alarga pero no me acuerdo de detalles.
 
