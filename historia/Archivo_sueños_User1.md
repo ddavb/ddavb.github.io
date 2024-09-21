@@ -10,7 +10,8 @@
   - [Terror acolchado](#27082024-Terror-acolchado)
   - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/6PO.png)
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/arbol.png)
 
 
 
@@ -135,7 +136,7 @@ El resto de desnivel lo bajé como si fuera un tobogán.
 
 Mientras seguimos caminando, poco a poco voy abriendo los ojos secos por no haber bebido suficiente agua
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/5-PS.jpg)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/playa.jpg)
 
 ## 17/09/2024 Fragmento chino
 
@@ -287,7 +288,7 @@ Se que es una trampa e intento escaparme de ella, pero cerca de mis padres, no q
 Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sangre falsa, y yo ‘culpable’, me exige que me vaya con ella o sufriré. Mis padres viendo la escena, con miedo, yo les digo que no miren, que debería haber puesto otra peli. Mi madre repite, como siempre que hay una pelicula gore/terror: ayyy cambialaa
 
 
-![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_1.png)
+![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/mar.png)
 
 
 
@@ -382,5 +383,5 @@ Me pongo a jugar al mario kart para desbloquear cre´ditos, que utilizaré para 
 
 Me pongo a jugar para desboquearlo y no logro desbloquear nada
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea1.jpg)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/1DD.jpg)
 
