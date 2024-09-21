@@ -11,7 +11,7 @@
   - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/arbol.png)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/arbol.jpg)
 
 
 
