@@ -10,11 +10,10 @@
   - [Un problema que se resuelve solo](#27082024-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#27082024-Terror-acolchado)
   - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
+  - [Partida confusa](#16012021-Partida-confusa)
 
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.jpeg)
-
-
 
 ## 23/09/2024 intermedio
 
@@ -23,7 +22,8 @@ Recuerdo estar en una ciudad China ... era enorme. Era una ciudad planificada qu
 En algún momento empiezo a volar de forma natural, observaba los eficios y podía contemplarlo todo (lo superficial).
 Recuerdo que me aposento en una de las columnas griegas construidas en medio de un paseo que conectaba dos distritos con edificios asombrosos. Me doy cuenta de que puedo volar, que me gustaría contárselo a alguien, que esa capacidad era sublime y que tenía que controlarla.
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3862.jpeg)
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/MURETE.PNG)
 
 
 ## 20/09/2024 Vacilador vacilado
@@ -395,4 +395,45 @@ Me pongo a jugar al mario kart para desbloquear cre´ditos, que utilizaré para 
 Me pongo a jugar para desboquearlo y no logro desbloquear nada
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/1DD.jpg)
+
+
+## 16/01/2021 Partida confusa
+
+> En este sueño tengo la sensación de que se repite. Pero puede que simplemente, mientras se desarrollan los sucesos, voy pensando en otras cosas posibles, como en una partida de ajedrez
+
+Empiezo con una partida de ajedrez que pierdo.
+
+Pienso en la partida con cambios (para ganar la partida)
+
+> En ningún momento creo realmenteconcretamente una partida de ajedrez mentalmente en el sueño (ojalá). Sólo sé que estoy jugando una partida, que la pierdo y que pienso en cambios. Había vevces que la partida de ajedrez era obvia y otras que no (bueno es igual)
+
+Dentro de la casa del Marques de Benicarló, que no se parecia en nada a la original, hacemos preparativos para grabar música y videoclip
+En vez de tocar estamos jugando al ajedrez.
+Pasan situaciónes comúnes de grabación de música ¿?
+
+La gente se va y me encuentro con mi familia, siguiendo trabajando en una partida de ajedrez, aunque ahora la partida no es evidente.
+La partida es en la vida real. Pienso en moverme detrás de un arbol, o estar en una perspectiva diferente desde donde me ve la gente.
+Estoy escapando y para ello atravieso paredes y escalo
+
+Termino en al calle ...
+
+> ¿eso es que he ganado? no recuerdo
+
+... es decir salgo de la casa y la gente me busca. Es de noche y como hay toque de queda vuelvo para mi casa.
+No soy el único que lo estaba haciendo, por que hay una fiesta en una casa y vamos todos hacia allí.
+De camino, de alguna forma empiezo a hablar con << C de vista >>
+Le doy una personalidad (me he inventado a una persona) mientras hablo con ella en la fiesta.
+Dormimos en un sofa abrazados. Me despierto a la mañana siguiente y ella se va antes que yo.
+
+Al salir me encuentro con un amigo que me cuenta sus movidas (y pasan cosas (¿?))
+mientras vamos de camino a mi antigua casa
+
+Al llegar, soy un niño pequeño. Y mis amigos tambien son crios.
+Maquinamos un plan para escapar de ahí tipo aventura de niños, y me quedo conS la sensación de que repetimos cosas (o no, es confuso)
+
+joder, este sueño es complicado
+
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3862.jpeg)
+
 
