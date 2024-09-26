@@ -71,7 +71,7 @@ vamos nos dan una medalla y bajamos. yo pensaba en el dinero que habrá constado
 Vaya, no me saludaban a mi.
 
 Cierro la puerta y pienso en irme a casa, miro el movil para ver si mi padre nos venía a recoger, pero como veo que es un lio decido ir andando.
-Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le digo que me voy igualmente que ya lo he decidido. Doy un par de pasos, aparecen las chicas de antes y me dicen que no me vaya. Les digo lo mismo. Doy un par de pasos más. Miro atrás mientras una chica me repite que no me vaya y me enseña un poco los pechos. Sigo andando y vuelvo a mirar atrás. Ahora se le veía claramente los pechos. Sigo andando y obviamente vuelvo a mirar atrás. Habían mas pechos en el aire y más voces diciendo David no te vayaaas. Daviiid 
+Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le digo que me voy igualmente que ya lo he decidido. Doy un par de pasos, aparecen las chicas de antes y me dicen que no me vaya. Les digo lo mismo. Doy un par de pasos más. Miro atrás mientras una chica me repite que no me vaya y me enseña un poco los pechos. Sigo andando y vuelvo a mirar atrás. Ahora se le veía claramente los pechos. Sigo andando y obviamente vuelvo a mirar atrás. Habían mas mujeres mostrando sus pechos y más voces diciendo David no te vayaaas, Daviiid 
   
  
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_20180702.jpg)
