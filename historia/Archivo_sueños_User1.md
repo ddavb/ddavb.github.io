@@ -20,7 +20,7 @@
 
 Recuerdo estar en una ciudad China ... era enorme. Era una ciudad planificada que poseía edificios magestuosos, parques y áarboles encantadores ... inefable!
 
-En algún momento empiezo a volar de forma natural, observaba los eficios y podía contemplarlo todo con la vista.
+En algún momento empiezo a volar de forma natural, observaba los eficios y podía contemplarlo todo (lo superficial).
 Recuerdo que me aposento en una de las columnas griegas construidas en medio de un paseo que conectaba dos distritos con edificios asombrosos. Me doy cuenta de que puedo volar, que me gustaría contárselo a alguien, que esa capacidad era sublime y que tenía que controlarla.
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3862.jpeg)
@@ -74,7 +74,7 @@ Cierro la puerta y pienso en irme a casa, miro el movil para ver si mi padre nos
 Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le digo que me voy igualmente que ya lo he decidido. Doy un par de pasos, aparecen las chicas de antes y me dicen que no me vaya. Les digo lo mismo. Doy un par de pasos más. Miro atrás mientras una chica me repite que no me vaya y me enseña un poco los pechos. Sigo andando y vuelvo a mirar atrás. Ahora se le veía claramente los pechos. Sigo andando y obviamente vuelvo a mirar atrás. Habían mas pechos en el aire y más voces diciendo David no te vayaaas. Daviiid 
   
  
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3643.JPG)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_20180702.jpg)
 
 
 ## 18.09.2024 Para recordar, haga la cola
