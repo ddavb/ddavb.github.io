@@ -12,7 +12,9 @@
   - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_IMG_3862.jpeg)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.jpeg)
+
+
 
 ## 23/09/2024 intermedio
 
@@ -21,8 +23,8 @@ Recuerdo estar en una ciudad China ... era enorme. Era una ciudad planificada qu
 En algún momento empiezo a volar de forma natural, observaba los eficios y podía contemplarlo todo con la vista.
 Recuerdo que me aposento en una de las columnas griegas construidas en medio de un paseo que conectaba dos distritos con edificios asombrosos. Me doy cuenta de que puedo volar, que me gustaría contárselo a alguien, que esa capacidad era sublime y que tenía que controlarla.
 
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_IMG_3862.jpeg)
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.jpeg)
 
 ## 20/09/2024 Vacilador vacilado
 
