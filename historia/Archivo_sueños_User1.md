@@ -17,10 +17,10 @@
 
 ## 23/09/2024 intermedio
 
-Recuerdo estar en una ciudad China ... era enorme. Era una ciudad planificada que poseía edificios magestuosos, parques y áarboles encantadores ... inefable!
+Estas en una ciudad China enorme. Una ciudad planificada que posee edificios magestuosos, parques y árboles encantadores ... inefable!
 
-En algún momento empiezo a volar de forma natural, observaba los eficios y podía contemplarlo todo (lo superficial).
-Recuerdo que me aposento en una de las columnas griegas construidas en medio de un paseo que conectaba dos distritos con edificios asombrosos. Me doy cuenta de que puedo volar, que me gustaría compartirla con alguien, que esa capacidad era sublime y que tenía que controlarla.
+En algún momento empiezas a volar de forma natural. Observas los eficios y lo contemplas todo (lo superficial).
+Te aposentas en una de las columnas griegas construidas en medio de un paseo que conecta dos distritos con edificios asombrosos. Tomas consciencia de que puedes volar, que quieres compartirlo con alguien, que esa capacidad es sublime y que tienes que controlarla. Ese deseo te despierta.
 
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/MURETE.png)
