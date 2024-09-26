@@ -20,7 +20,7 @@
 Recuerdo estar en una ciudad China ... era enorme. Era una ciudad planificada que poseía edificios magestuosos, parques y áarboles encantadores ... inefable!
 
 En algún momento empiezo a volar de forma natural, observaba los eficios y podía contemplarlo todo (lo superficial).
-Recuerdo que me aposento en una de las columnas griegas construidas en medio de un paseo que conectaba dos distritos con edificios asombrosos. Me doy cuenta de que puedo volar, que me gustaría contárselo a alguien, que esa capacidad era sublime y que tenía que controlarla.
+Recuerdo que me aposento en una de las columnas griegas construidas en medio de un paseo que conectaba dos distritos con edificios asombrosos. Me doy cuenta de que puedo volar, que me gustaría compartirla con alguien, que esa capacidad era sublime y que tenía que controlarla.
 
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/MURETE.PNG)
