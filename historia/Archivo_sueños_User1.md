@@ -1,7 +1,8 @@
 # SUEÑOS crudos, por editar
 
-  - [Vacilador vacilado](#17092024-Vacilador-vacilado)
-  - [Para recordar, haga la cola](#18092024-Para-recordar-haga-la-cola)
+  - [Intermedio](#23092024-Intermedio)
+  - [Vacilador vacilado](#20092024-Vacilador-vacilado)
+  - [Para recordar, haga la cola](#18.09.2024-Para-recordar-haga-la-cola)
   - [Fragmento chino](#17092024-Fragmento-chino)
   - [Parte policial](#11092024-Parte-policial)
   - [Molestias](#07092024-Molestias)
@@ -11,9 +12,17 @@
   - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
 
 
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_IMG_3862.jpeg)
+
+## 23/09/2024 intermedio
+
+Recuerdo estar en una ciudad China ... era enorme. Era una ciudad planificada que poseía edificios magestuosos, parques y áarboles encantadores ... inefable!
+
+En algún momento empiezo a volar de forma natural, observaba los eficios y podía contemplarlo todo con la vista.
+Recuerdo que me aposento en una de las columnas griegas construidas en medio de un paseo que conectaba dos distritos con edificios asombrosos. Me doy cuenta de que puedo volar, que me gustaría contárselo a alguien, que esa capacidad era sublime y que tenía que controlarla.
+
+
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.jpeg)
-
-
 
 ## 20/09/2024 Vacilador vacilado
 
@@ -66,7 +75,7 @@ Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3643.JPG)
 
 
-## 18/09/2024 Para recordar, haga la cola
+## 18.09.2024 Para recordar, haga la cola
 
 Caminando por la av. papa luna veía de lejos a < R-MIR >.
 Me había visto pero no quería saludarla hasta estar cerca.
