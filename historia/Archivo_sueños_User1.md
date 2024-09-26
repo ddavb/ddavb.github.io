@@ -23,7 +23,7 @@ En algún momento empiezo a volar de forma natural, observaba los eficios y pod�
 Recuerdo que me aposento en una de las columnas griegas construidas en medio de un paseo que conectaba dos distritos con edificios asombrosos. Me doy cuenta de que puedo volar, que me gustaría compartirla con alguien, que esa capacidad era sublime y que tenía que controlarla.
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/MURETE.PNG)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/MURETE.png)
 
 
 ## 20/09/2024 Vacilador vacilado
