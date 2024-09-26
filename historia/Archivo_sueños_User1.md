@@ -107,11 +107,11 @@ Ella me hizo entender que valoraba lo práctico antes que un título.
 Hablamos de la orquesta por mis datos laborales, pero ella me conocía de más cosas. De un concierto del que yo también me acordaba.
 El concierto salió en la tele y habían más grupos.
 Estaba contento por que me conociera y me recordara de ese concierto, aunque me daba un poco de pena que fuera con la orquesta y no con algún grupo guay que tuve.
-Me hubiera gustado que me dijera, sí te vi con < Dale-Pomada > tocando < Me-voy-a-comprar-unos-Chetoos>
+Me hubiera gustado que me dijera, sí te vi con < PD > tocando < Me-voy-a-comprar-unos-Chetoos>
 
 > Le empecé a contar cosas de ese día, me salía de dentro.
 
-- Pues el fragmento del concierto que salió en la tele, que fue previo al fragmento del concierto de Lèpoka, fue de la orquesta < TSu(per)namic >. - Dije mientras ella hacía muecas para transmitirme que ya lo sabía. Lo he visto me dijo.
+- Pues el fragmento del concierto que salió en la tele, que fue previo al fragmento del concierto de Lèpoka, fue de la orquesta < SM >. - Dije mientras ella hacía muecas para transmitirme que ya lo sabía. Lo he visto me dijo.
 Yo seguía con un: pero podría haber sido de << Dale Pomada >>, pero por tonterías no lo fué.
 
 > Aquí le cuento una história que me hace perder el hilo del sueño:
@@ -123,11 +123,11 @@ En ese momento todo mi alrededor cambió. Me encontraba reviviendo el recuerdo d
 ... era que yo tenía un movil en la mano y le estaba contando a la gata de S en una llamada la historia mientras la revivía.
 
 El lugar era un poco chungo. A las afueras de una nave medio derruida, con descampado por los alrededores y desniveles con arena y cables y vigas tirados de cualquier manera. Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, canela de la arena, gris azulado por los postes de electricidad ...
-Yo por teléfono ya había dicho que al final no tocamos por que << Za Patero >> no le pareció buena idea.
+Yo por teléfono ya había dicho que al final no tocamos por que a << Zapatero >> no le pareció buena idea.
 Que podríamos haber grabado todo con video y audio y que fue una pena no habernos puesto de acuerdo.
 < areyenS > asentía con ímpetu.
 
-Mientras revivía el recuerdo, a<< areyenS >> y a mi nos daba rabia porq a nosotros sí que nos hubiera gustado tocar.
+Mientras revivía el recuerdo, a << areyenS >> y a mi nos daba rabia porq a nosotros sí que nos hubiera gustado tocar.
 Ibamos caminando por el lugar en cuestión, con un pedo tremendo.
 Bajando por un desnivel, << areyenS >> dió un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
 Yo tenía que hacer lo mismo pero con la borrachera fui con sumo cuidado, a cuatro patas y despacito.
