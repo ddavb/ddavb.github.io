@@ -10,7 +10,7 @@
   - [Un problema que se resuelve solo](#27.08.2024-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#27082024-Terror-acolchado)
   - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
-  - [Partida confusa](#16.01.2021-Partida-confusa)
+  - [16.01.2021 Partida confusa](#16.01.2021-Partida-confusa)
 
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.jpeg)
