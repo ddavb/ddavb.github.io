@@ -2,12 +2,12 @@
 
   - [Intermedio](#23092024-Intermedio)
   - [Vacilador vacilado](#20092024-Vacilador-vacilado)
-  - [Para recordar, haga la cola](#18.09.2024-Para-recordar-haga-la-cola)
+  - [Para recordar, haga la cola](#18.09.2024-Para-recordar,-haga-la-cola)
   - [Fragmento chino](#17092024-Fragmento-chino)
   - [Parte policial](#11092024-Parte-policial)
   - [Molestias](#07092024-Molestias)
-  - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal-y-un-maton)
-  - [Un problema que se resuelve solo](#27082024-Un-problema-que-se-resuelve-solo)
+  - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal-y-un-matón)
+  - [Un problema que se resuelve solo](#27.08.2024-Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#27082024-Terror-acolchado)
   - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
   - [Partida confusa](#16012021-Partida-confusa)
@@ -15,7 +15,7 @@
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.jpeg)
 
-## 23/09/2024 intermedio
+## 23/09/2024 Intermedio
 
 Recuerdo estar en una ciudad China ... era enorme. Era una ciudad planificada que poseía edificios magestuosos, parques y áarboles encantadores ... inefable!
 
@@ -259,7 +259,7 @@ El increpador hace de maton … (es << huracán MP >>) y es bastante original di
 > Habian muchas insinuaciones y lenguaje no verbal
 
   
-## 27/08/2024 Un problema que se resuelve solo 
+## 27.08.2024 Un problema que se resuelve solo 
 
 
 En un difuso inicio, estaba cachondo y de camino a mi pueblo.
@@ -403,13 +403,13 @@ Me pongo a jugar para desboquearlo y no logro desbloquear nada
 
 Empiezo con una partida de ajedrez que pierdo.
 
-Pienso en la partida con cambios (para ganar la partida)
+Pienso en la partida con cambios (para ganarla)
 
-> En ningún momento creo realmenteconcretamente una partida de ajedrez mentalmente en el sueño (ojalá). Sólo sé que estoy jugando una partida, que la pierdo y que pienso en cambios. Había vevces que la partida de ajedrez era obvia y otras que no (bueno es igual)
+> En ningún momento creo concreta y mentalmente una partida de ajedrez en el sueño (ojalá). Sólo sé que estoy jugando una partida, que la pierdo y que pienso en cambios. Había vevces que la partida de ajedrez era obvia y otras que no (bueno es igual)
 
-Dentro de la casa del Marques de Benicarló, que no se parecia en nada a la original, hacemos preparativos para grabar música y videoclip
-En vez de tocar estamos jugando al ajedrez.
-Pasan situaciónes comúnes de grabación de música ¿?
+Dentro de la casa del Marqués de Benicarló, que no se parecia en nada a la original, hacemos preparativos para grabar música y videoclip
+No tocamos música sino que estamos jugando al ajedrez.
+Pasan situaciónes comúnes de grabación ¿?
 
 La gente se va y me encuentro con mi familia, siguiendo trabajando en una partida de ajedrez, aunque ahora la partida no es evidente.
 La partida es en la vida real. Pienso en moverme detrás de un arbol, o estar en una perspectiva diferente desde donde me ve la gente.
