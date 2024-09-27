@@ -1,7 +1,7 @@
 # SUEÑOS crudos por editar
 
   - [Intermedio en China](#23092024-Intermedio-en-China)
-  - [Karma](#20092024-Vacilador-vacilado)
+  - [Karma](#20092024-Karma)
   - [Haz cola para recordar](#18.09.2024-Haz-cola-para-recordar)
   - [Intermedio en UMA](#17092024-Fragmento-chino)
   - [Parte policial](#11092024-Parte-policial)
@@ -28,7 +28,7 @@ Te aposentas con el abdomen en una de las columnas griegas construidas en medio 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/MURETE.png)
 
 
-## 20/09/2024 Vacilador vacilado
+## 20/09/2024 Karma
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
