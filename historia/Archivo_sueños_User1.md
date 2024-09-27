@@ -1,21 +1,21 @@
 # SUEÑOS crudos por editar
 
-  - [Intermedio](#23092024-Intermedio)
-  - [Vacilador vacilado](#20092024-Vacilador-vacilado)
-  - [Para recordar, haga la cola](#18.09.2024-Haz-cola-para-recordar)
-  - [Fragmento chino](#17092024-Fragmento-chino)
+  - [Intermedio en China](#23092024-Intermedio-en-China)
+  - [Karma](#20092024-Vacilador-vacilado)
+  - [Haz cola para recordar](#18.09.2024-Haz-cola-para-recordar)
+  - [Intermedio en UMA](#17092024-Fragmento-chino)
   - [Parte policial](#11092024-Parte-policial)
   - [Molestias](#07092024-Molestias)
   - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal-y-un-matón)
   - [27/08/2024 Un problema que se resuelve solo](#Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#27082024-Terror-acolchado)
   - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
-  - [16-01-2021 Partida confusa](#Partida-confusa)
+  - [16-01-2021 Una partida confusa](#Una-partida-confusa)
 
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.jpeg)
 
-## 23/09/2024 Intermedio
+## 23/09/2024 Intermedio en China
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
@@ -415,7 +415,7 @@ Me pongo a jugar para desboquearlo y no logro desbloquear nada
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/1DD.jpg)
 
 
-## Partida confusa
+## Una partida confusa
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
