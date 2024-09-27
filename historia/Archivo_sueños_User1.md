@@ -7,15 +7,17 @@
   - [Parte policial](#11092024-Parte-policial)
   - [Molestias](#07092024-Molestias)
   - [Las rotondas son el mal](#29082024-Las-rotondas-son-el-mal-y-un-matón)
-  - [Un problema que se resuelve solo](#27.08.2024-Un-problema-que-se-resuelve-solo)
+  - [27/08/2024 Un problema que se resuelve solo](#Un-problema-que-se-resuelve-solo)
   - [Terror acolchado](#27082024-Terror-acolchado)
   - [Boxeo, sexo y un loop](#28032021-Boxeo-sexo-y-un-loop)
-  - [16-01-2021 Partida confusa](#16-01-2021-Partida-confusa)
+  - [16-01-2021 Partida confusa](#Partida-confusa)
 
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.jpeg)
 
 ## 23/09/2024 Intermedio
+
+- [[INTRO]](#SUEÑOS-crudos,-por-editar)
 
 Estas en una ciudad China enorme. Una ciudad planificada que posee edificios majestuosos, parques y árboles encantadores ... inefable!
 
@@ -27,6 +29,8 @@ Te aposentas con el abdomen en una de las columnas griegas construidas en medio 
 
 
 ## 20/09/2024 Vacilador vacilado
+
+- [[INTRO]](#SUEÑOS-crudos,-por-editar)
 
 ### 1st round vacilador
 
@@ -78,6 +82,8 @@ Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le 
 
 
 ## 18.09.2024 Para recordar, haga la cola
+
+- [[INTRO]](#SUEÑOS-crudos,-por-editar)
 
 Caminando por la av. papa luna veía de lejos a < R-MIR >.
 Me había visto pero no quería saludarla hasta estar cerca.
@@ -151,6 +157,8 @@ Mientras seguimos caminando, poco a poco voy abriendo los ojos secos por no habe
 
 ## 17/09/2024 Fragmento chino
 
+- [[INTRO]](#SUEÑOS-crudos,-por-editar)
+
 cena familiar y mi padre hace algo torpe con lo que le hechamos la bronca
 
 caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueños. son dos chinos y estaban fumando. me enseñan unas hamburguesas que tenían una pinta brutal ... tremenda ... pienso que es un buen lugar para tener en cuenta y le mando una foto del sitio a << M Gal >>. En ese momento veo que me está escribiendo por instagram para contarme que ha soñado. 
@@ -159,6 +167,8 @@ Me despierto rápido y tardo en asimilar que era un sueño
 
 
 ## 11/09/2024 Parte policial
+
+- [[INTRO]](#SUEÑOS-crudos,-por-editar)
 
 > iba con padre y hermano con una furgoneta de viaje. No, con el peugeot.
 > veniamos de algún sitio y ibamos a un sitio indeterminado
@@ -209,6 +219,8 @@ abro otra puerta y hay más revistas. Esta vez revistas porno. Una portada de te
 
 ## 07/09/2024 Molestias
 
+- [[INTRO]](#SUEÑOS-crudos,-por-editar)
+
 Una noche pescando con << amigo J >>, yo le insistía que tenía que regular la presión de las ruedas del coche.
 A pesar de argumentarme que estoy equivocado, lo hace y se da cuenta de que ahora es más feliz.
 
@@ -238,6 +250,8 @@ Cuando se fueron las luces se vio la luna. Aunque no me fijé en la luna hasta q
 
 ## 29/08/2024 Las rotondas son el mal y un matón
 
+- [[INTRO]](#SUEÑOS-crudos,-por-editar)
+
 Estaba con << amigo J >> pegandonos en broma cuando de repente estaba en el coche por la eotonda de la raya del terme, pierdo el control del coche (creo) y tengo un accidente multiple.
 
 Al coche intento salir de la rotonda pero estaba aturdido y di varios trompos
@@ -259,8 +273,9 @@ El increpador hace de maton … (es << huracán MP >>) y es bastante original di
 > Habian muchas insinuaciones y lenguaje no verbal
 
   
-## 27.08.2024 Un problema que se resuelve solo 
+## Un problema que se resuelve solo 
 
+- [[INTRO]](#SUEÑOS-crudos,-por-editar)
 
 En un difuso inicio, estaba cachondo y de camino a mi pueblo.
 Estaba llegando a la estacion de castellon para coger en tren de noche.
@@ -290,6 +305,8 @@ Desde ese instante, para mi sorpresa, me doy cuenta de que ya estaba en Benicarl
 
 ## 27/08/2024 Terror acolchado
 
+- [[INTRO]](#SUEÑOS-crudos,-por-editar)
+
 Iba con mis padres por san gregori y me cruzaba con << ex M >>. Estaba un poco cambiada y daba miedo. Parecían una bruja.
 Por algun motivo mis pdres de pararon en la misma calle, en un puestito que habian preparado para vender ellos.
 
@@ -306,6 +323,7 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 
 ## 28/03/2021 Boxeo, sexo y un loop
 
+- [[INTRO]](#SUEÑOS-crudos,-por-editar)
 
 *TRANSCRIPCIÓN del audio:*
 
@@ -397,7 +415,9 @@ Me pongo a jugar para desboquearlo y no logro desbloquear nada
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/1DD.jpg)
 
 
-## 16 01 2021 Partida confusa
+## Partida confusa
+
+- [[INTRO]](#SUEÑOS-crudos,-por-editar)
 
 > En este sueño tengo la sensación de que se repite. Pero puede que simplemente, mientras se desarrollan los sucesos, voy pensando en otras cosas posibles, como en una partida de ajedrez
 
