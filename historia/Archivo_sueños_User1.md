@@ -2,7 +2,7 @@
 
   - [Intermedio](#23092024-Intermedio)
   - [Vacilador vacilado](#20092024-Vacilador-vacilado)
-  - [Para recordar, haga la cola](#18.09.2024-Para-recordar,-haga-la-cola)
+  - [Para recordar, haga la cola](#18.09.2024-Haz-cola-para-recordar)
   - [Fragmento chino](#17092024-Fragmento-chino)
   - [Parte policial](#11092024-Parte-policial)
   - [Molestias](#07092024-Molestias)
@@ -81,7 +81,7 @@ Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_20180702.jpg)
 
 
-## 18.09.2024 Para recordar, haga la cola
+## 18.09.2024 Haz cola para recordar
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
