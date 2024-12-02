@@ -83,7 +83,7 @@ Consigió superarlo gracias a un collar de maíz, por el cual escribió este tex
 > Alimenta al humano cuando procede
 
 
-![conjunto mejor](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_5168.png)
+![conjunto mejor](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_5168.jpeg)
 
 
 ## 10/11/2024 Angustia
