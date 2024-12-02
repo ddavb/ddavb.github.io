@@ -475,13 +475,25 @@ Te das cuenta de que ya estas en Benicarló.
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-Iba con mis padres por san gregori y te cruzaba con << ex M >>. estas un poco cambiada y daba miedo. parecen una bruja.
-Por algun motivo mis pdres de pararon en la misma calle, en un puestito que habian preparado para vender ellos.
+Vas con tus padres por san gregori y te cruzas con << ex M >>.
+está un poco cambiada y daba miedo. parece una bruja.
+Por algun motivo tus pdres se paran en la misma calle, en un puestito que habían preparado para vender ellos también.
 
-Me doy cuenta de que hay una chica que se esta acercando. No es << ex M >>, es mas alta y mas arreglada,.
-Se que es una trampa e intento escaparme de ella, pero cerca de mis padres, no quiero dejarlos solos. Ella te atrapa, te exige que vaya con ella. tu no quiero. De repente crea una escena donde un coche la atropella, bastante irreal, pero la consigue, y tu dentro del coche. Todo teatro pero verosímil.
+Te das cuenta de que hay una chica que se está acercando.
+No es << ex M >>.
+Es mas alta y mas arreglada.
+Sabes que es una trampa e intentas escaparte de ella.
+Pero cerca de tus padres, no quieres dejarlos solos.
+Ella te atrapa, te exige que vayas con ella.
+tu no quieres.
+En ese instante y expresando un sentimiento de furia, crea una escena donde un coche la atropella.
+Muy irreal para ti, pero suficiente para engañar al resto de gete. Todo teatro, pero verosímil.
 
-Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sangre falsa, y tu ‘culpable’, te exige que te vaya con ella o sufriré. Mis padres viendo la escena, con miedo, tu les digo que no miren, que debería haber puesto otra peli. ti madre repite, como siempre que hay una pelicula gore/terror: ayyy cambialaa
+Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sangre falsa.
+Y tú, ‘culpable’, te exige que te vaya con ella o sufrirás. 
+Tus padres ven la escena con miedo.
+Tu les dices que no miren, que deberías haber puesto otra peli.
+Tu madre repite, como siempre que hay una pelicula gore/terror: ayyy cambialaa
 
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/mar.png)
 
@@ -497,14 +509,14 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 
 ### Escenario del ring
 
-> buscando restos arqueológicos, no sabes si eran mios ... pero no dio frutos
+> buscando restos arqueológicos, no sabes si lo que encuentras son tus restos ... pero no hay resultado concluyente
 
-> Cobro de la orquesta y de repente Estas ...
-> (me Estas acordando de cosas. vales si)
-> ... Estas en un ring que Vas a pelearme con alguien, es la primera vez que te peleo y pensaba que iba a perder.
-> No estas nervioso
+> Cobras de la orquesta y de repente estás ...
+> (me estoy acordando de cosas. vale sí)
+> ... Estas en un ring pque Vas a pelearte con alguien, es la primera vez que te peleas y piensas que vas a perder.
+> No estás nervioso
 
-Tenia rabia, ganas de luchar, sensación de pelea.
+Tienes rabia, ganas de luchar, sensación de pelea.
 Son dos asaltos
 En el primero no estas luchado tu, estas luchando otro, ti "compañero de pelea", que lo hace bien.
 Lo está haciendo muy bien, hasta que el otro le machaca lanzandole contra una columna de las afueras del escenario.
@@ -575,7 +587,7 @@ me hago amigo de un chino y empieza a hacer cosas guays
 
 depués volvemos a una antigua casa
 
- la parte de la casa, teniamos que darle la vuelta al coche, pero el coche eran cuatro sillas en forma de cuadrado. ti padre quería que le diera la vuelta pero tu no entendía que te pedía exactamente, por que no había coche,
+ la parte de la casa, tienes que darle la vuelta al coche, pero el coche eran cuatro sillas en forma de cuadrado. ti padre quería que le diera la vuelta pero tu no entendía que te pedía exactamente, por que no había coche,
 
 Me pongo a jugar al mario kart para desbloquear cre´ditos, que utilizaré para debloquear partes del coche, pienso en las ruedas para ponerselas a la silla, chasis, eje ... cualquier cosa.
 
