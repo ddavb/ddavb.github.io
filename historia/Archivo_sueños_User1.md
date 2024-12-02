@@ -62,7 +62,7 @@ Te decides a preguntar que hay ahí dentro y te comenta por encima:
 
 Te acercas pero no ves gran cosa, solo un depósito conectado con el subsuelo donde tiran cosas.
 Vas a la parte trasera y ves una especie de bolas almacenadas.
-Son bellotas cutu fruto es verde radioactivo.
+Son bellotas cuyo fruto es verde radioactivo.
 Son del tamaño de s sandías.
 No son uniformes/homogéneas entre sí, varian mucho entre cada bellota.
 
