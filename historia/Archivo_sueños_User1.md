@@ -129,8 +129,6 @@ Te aposentas con el abdomen en una de las columnas griegas construidas en medio 
 
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_20180702.jpg)
-
 ## 20/09/2024 Karma
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
@@ -139,46 +137,54 @@ Te aposentas con el abdomen en una de las columnas griegas construidas en medio 
 
 > recuerdo al del saxo de la ludwig ... pero nomás
 
-Voy en una furgoneta y nos paran en un control policial/militar.
-estabamos preocupados por que debíamos llevar algo ilegal o algo.
-Mientras pienso que sería genial que pasara algo para librarnos del control, explota algo a lo lejos.
+Vas en una furgoneta con mas gente y os paran en un control policial/militar.
+Estáis preocupados por que debíamois llevar algo ilegal.
+Mientras piensas que sería genial que pasara algo para libraros del control, explota algo a lo lejos.
 Todos los que estaban en el control se van, no sin antes intercambiar palabras con un agente
 
 > debió de ser algo así la conversación:
 
 - confiamos en el buen hacer ciudadano de que dejaréis la furgoneta aquí y no la tocaréis para el control
 
-- sí, y los huevos también - dije por mi parte
+- sí, y los huevos también - dices por mitu parte
 
 
-> Me fuí y acabo en una especie de escaleras de metro, donde estaba sentado << pújil >>. Cansado pero activo, me pregunta si saldré de noche y le digo que no. El es RRPP o portero de algún sitio y se estaba pegando una semanita de. fiesta del copón, sin buscarlo.
+> Te largas y acabas en una especie de escaleras de metro, donde estaba sentado << pújil >>.
+Cansado pero activo, mte pregunta si saldras de noche y le dices que no. El es RRPP o portero de algún sitio y se estaba pegando una semanita de. fiesta del copón, sin buscarlo.
 > Para cuando acaboó la conversación había un montón de gente sentada
 
 
-> En algún momento aparezco en un bar. Estaba con el hermano de << areyenS >> pero estaba invalido
-> Me preguntas sobre las oposiciones y yo contestaba. Me preguntaban si yo estaba bien.
-> Me daba la sensación de que ellos pensaban que estaba triste por haber suspendido pero y o no habiá hecho exámenes recientemente.
+> En algún momento apareces en un bar. Estabas con el hermano de << areyenS >> es estado invalido
+> Te pregunta sobre las oposiciones y tu contestaba. Te preguntan si estas bien.
+> Te da la sensación de que ellos piensan que estas triste por haber suspendido, pero teextrañas pq aún no has hecho exámenes recientemente.
 
-> Esta conversación se alarga pero no me acuerdo de detalles.
+> Esta conversación se alarga pero no te acuerdas de mas detalles.
 
-> Luego estaba en casa en mi habitación con << Dry >> y << amigoJ >>, jugando a la gamecube.
-> De alguna forma me quedé sólo y del resto no me acuerdo
+> Luego estas en , en mitu habitación con << Dry >> y << amigoJ >>, jugando a la gamecube.
+> De alguna forma te quedas sólo y del resto tampoco me acuerdo
 
 
 ### 2nd round vacilado
 
-estaba en un recindo muy grande y lleno de gente.
+estas en un recindo muy grande y lleno de gente.
 era como una entrega de premios privada de una orquesta. había pasarelas y gente animando, música, luces ...
 
-estaban a punto de llamar a los mñúsico para darles algún premio. me dicen a << Dry >> y a mi de subir a recibir premios. Yo pienso que al no haber hecho la ttemporada de verano con esa orquesta, no me recía ese reconocimiento. había hecho algún bolo pero ya me lo había dejado. y adri tampoco lo merecía porq no tenía nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, pues que se fastidien.
+estan a punto de llamar a los músico para darles algún premio.
+Le dicen a << Dry >> y a ti de subir a recibir premios. YoTu piensoas que al no haber hecho la ttemporada de verano con esa orquesta, no mereces ese reconocimiento. has hecho algún bolo pero ya te lo habías dejado. Y Mr.Dri tampoco lo merecía porq no tenía nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, pues que se fastidien.
 
-estaba petadísimo todo. en la pasarela, al principio del todo justo al subir, estaba eufñorico y me pongo a bailar tektonic, cuatro/5 personas del público únicamente me ven bailar y les hace gracia
+está petadísimo todo. en la pasarela, al principio del todo justo al subir, estaba eufñorico y te pones a bailar tektonic, cuatro/5 personas del público únicamente te ven bailar y les hace gracia
 
-vamos nos dan una medalla y bajamos. yo pensaba en el dinero que habrá constado pero ... pa mi. hablamos con el jefe de la rquesta, toca irse para casa. un amigo se fue ultra rápido. me asomo a la calle doctor fleming? la de balaguer. veo a la derecha que hay un grupito de chicas en un portal que está saludando. están arregladas, vestidas para salir de fiesta. miro a la izqauierda y hay otro grupido de chicos/chicas que devuelven el saludo.
-Vaya, no me saludaban a mi.
+vamos nos dan una medalla y bajamos. tu piensas en el dinero que habrá constado pero ... pa mti. hablamos con el jefe de la rquesta, toca irse para casa. un amigo se fue ultra rápido. te asomo a la calle doctor fleming? la de balaguer. ves a la derecha que hay un grupito de chicas en un portal que está saludando. están arregladas, vestidas para salir de fiesta. miro a la izqauierda y hay otro grupido de chicos/chicas que devuelven el saludo.
+Vaya, no te saludan a ti.
 
-Cierro la puerta y pienso en irme a casa, miro el movil para ver si mi padre nos venía a recoger, pero como veo que es un lio decido ir andando.
-Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le digo que me voy igualmente que ya lo he decidido. Doy un par de pasos, aparecen las chicas de antes y me dicen que no me vaya. Les digo lo mismo. Doy un par de pasos más. Miro atrás mientras una chica me repite que no me vaya y me enseña un poco los pechos. Sigo andando y vuelvo a mirar atrás. Ahora se le veía claramente los pechos. Sigo andando y obviamente vuelvo a mirar atrás. Habían mas mujeres mostrando sus pechos y más voces diciendo David no te vayaaas, Daviiid 
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_20180702.jpg)
+
+
+Cierras la puerta y piensas en irte a casa, miras el movil para ver si tu padre nosos viene a recoger, pero como ves que es un lio decides ir andando.
+Aparece << Ana de la carrera >> y te dice que no te vaya que aún es pronto. Le dices que te Vas igualmente que ya lo has decidido. Das un par de pasos, aparecen las chicas de antes y te dicen que no te vaya. Les dices lo mismo. Das un par de pasos más. Miras atrás mientras una chica te repite que no te vaya y te enseña un poco los pechos. Sigues andando y vuelves a mirar atrás. Ahora se le veía claramente los pechos. Sigues andando y obviamente vuelves a mirar atrás. Habían mas mujeres mostrando sus pechos y más voces diciendo "anonimo" no te vayaaas, "anonimoooo"
+  
+
   
  
 
@@ -254,7 +260,7 @@ Yo tenía que hacer lo mismo pero con la borrachera fui con sumo cuidado, a cuat
 A mitad de la distancia me caí de espaldas, pero el suelo estaba cerca y fue como caer de una hamaca encima de la suave arena.
 El resto de desnivel lo bajé como si fuera un tobogán.
 
-Mientras seguimos caminando, poco a poco voy abriendo los ojos secos por no haber bebido suficiente agua
+Mientras seguimos caminando, poco a poco Vas abriendo los ojos secos por no haber bebido suficiente agua
 
 
 
