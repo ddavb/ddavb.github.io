@@ -94,6 +94,28 @@ Alimenta al humano cuando procede
 
 ## 10/10/2024 Sueño breve iaio
 
+Estas en un coche, un sub negro.
+Conduce tu iaio de 99 años, que de repente está para conducir. En verdad no no mucho.
+Tu vas diciendo Uh uh uuuh mientras te lleva en carril contrario por la avenida Papa Luna.
+
+-- Por ahí no iaio! - dices sin pretender bajarle la moral
+
+El te va hablando de la vida
+
+-- Veus ahí? Sempre se veu l´hermita de Sant Antoni
+
+Tu cada vez mas acojonado, ves a tus padres de cara
+
+-- Ya está ya he conseguido que vaya por el carril que toca, no os preocupéis
+
+Estás en tu habitación, tu iaio en la suya.
+Lo ves y piensas en cederle tu habitación por que tiene balcón.
+Quizá le venga bien para andar
+
+
+
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/MURETE.png)
 
 ## 23/09/2024 Intermedio en China
 
@@ -105,8 +127,9 @@ En algún momento empiezas a volar de forma natural. Observas los edificios y lo
 Te aposentas con el abdomen en una de las columnas griegas construidas en medio de un paseo que conecta dos distritos con edificios asombrosos. Tomas consciencia de que puedes volar, que quieres compartirlo con alguien, que esa capacidad es sublime y que tienes que controlarla. Ese deseo te despierta.
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/MURETE.png)
 
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_20180702.jpg)
 
 ## 20/09/2024 Karma
 
@@ -158,8 +181,8 @@ Cierro la puerta y pienso en irme a casa, miro el movil para ver si mi padre nos
 Aparece << Ana de la carrera >> y me dice que no me vaya que aún es pronto. Le digo que me voy igualmente que ya lo he decidido. Doy un par de pasos, aparecen las chicas de antes y me dicen que no me vaya. Les digo lo mismo. Doy un par de pasos más. Miro atrás mientras una chica me repite que no me vaya y me enseña un poco los pechos. Sigo andando y vuelvo a mirar atrás. Ahora se le veía claramente los pechos. Sigo andando y obviamente vuelvo a mirar atrás. Habían mas mujeres mostrando sus pechos y más voces diciendo David no te vayaaas, Daviiid 
   
  
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_20180702.jpg)
 
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/playa.jpg)
 
 ## 18.09.2024 Haz cola para recordar
 
@@ -233,7 +256,7 @@ El resto de desnivel lo bajé como si fuera un tobogán.
 
 Mientras seguimos caminando, poco a poco voy abriendo los ojos secos por no haber bebido suficiente agua
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/playa.jpg)
+
 
 ## 17/09/2024 Fragmento chino
 
@@ -245,6 +268,9 @@ caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueño
 
 Me despierto rápido y tardo en asimilar que era un sueño
 
+
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
 
 ## 11/09/2024 Parte policial
 
@@ -295,7 +321,9 @@ abro otra puerta y hay más revistas. Esta vez revistas porno. Una portada de te
 
 - BFF esto ... bueno esto parece más raro. En todo caso no es mío.
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
+
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
 ## 07/09/2024 Molestias
 
@@ -324,7 +352,6 @@ Crucé la mirada con una pareja de adultos que estábamos expectantes para ver q
 Resulta que era un juego de luces de un comercial de una marca de deportes. Habían tapado la luna un rato para tener más impacto.
 Cuando se fueron las luces se vio la luna. Aunque no me fijé en la luna hasta que paso todo esto, me molestó el comercial.
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
 
 
@@ -352,7 +379,10 @@ El increpador hace de maton … (es << huracán MP >>) y es bastante original di
 > Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no se explica con las palabras de la conversación.
 > Habian muchas insinuaciones y lenguaje no verbal
 
-  
+
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea32_edit.png)
+
 ## Un problema que se resuelve solo 
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
@@ -381,7 +411,10 @@ Salgo de la estacion, cabizbajo, y me junto con varios amigos de primaria.
 Comento lo que ha sucedido y al terminar de contar la historia, amanece de forma fugaz.
 Desde ese instante, para mi sorpresa, me doy cuenta de que ya estaba en Benicarló desde que salí de la estación.
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea32_edit.png)
+
+
+
+![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/mar.png)
 
 ## 27/08/2024 Terror acolchado
 
@@ -396,10 +429,9 @@ Se que es una trampa e intento escaparme de ella, pero cerca de mis padres, no q
 Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sangre falsa, y yo ‘culpable’, me exige que me vaya con ella o sufriré. Mis padres viendo la escena, con miedo, yo les digo que no miren, que debería haber puesto otra peli. Mi madre repite, como siempre que hay una pelicula gore/terror: ayyy cambialaa
 
 
-![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/mar.png)
 
 
-
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/1DD.jpg)
 
 ## 28/03/2021 Boxeo, sexo y un loop
 
@@ -492,8 +524,11 @@ Me pongo a jugar al mario kart para desbloquear cre´ditos, que utilizaré para 
 
 Me pongo a jugar para desboquearlo y no logro desbloquear nada
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/1DD.jpg)
 
+
+
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3862.png)
 
 ## Una partida confusa
 
@@ -532,8 +567,4 @@ Al llegar, soy un niño pequeño. Y mis amigos tambien son crios.
 Maquinamos un plan para escapar de ahí tipo aventura de niños, y me quedo conS la sensación de que repetimos cosas (o no, es confuso)
 
 joder, este sueño es complicado
-
-
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3862.png)
-
 
