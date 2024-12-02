@@ -372,7 +372,7 @@ A pesar de argumentartee que estás equivocado, lo hace y se da cuenta de que ah
 
 Te ecuentras sentado en una acera, parece el centro de una gran ciudad.
 Edificios señoriales y las calles sucias y aún por peatonalizar.
-Ves gente pasar con tabaco y mete apetecía uno. Aguantas o te olvidas, no sabes.
+Ves gente pasar con tabaco y te apetece uno. Aguantas o te olvidas, no sabes.
 
 
 Estas ahora en el centro comercial de Benicarló (pero diferente) con << M Gal >>
@@ -393,9 +393,9 @@ Mirando el cielo ves dos luces en movimiento que van en la misma dirección.
 Cruzas la mirada con una pareja de adultos que también están expectantes para ver que pasa.
 
 Resulta que este suceso, es un juego de luces de un comercial de una marca de deportes.
-Habían tapado la luna un rato para tener más impacto.
-Cuando se fuerno las luces se vio la luna.
-Aunque no te fijé en la luna hasta que paso todo esto, te molestó el comercial.
+Pretendían tapar la luna un rato para tener más impacto.
+Cuando se fuerno las luces se vió la luna con claridad.
+Aunque no te fijaste en la luna hasta que paso todo esto, te molestó el comercial.
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
@@ -405,7 +405,7 @@ Aunque no te fijé en la luna hasta que paso todo esto, te molestó el comercial
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-Estás con << amigo J >> pegandoos en broma cuando de repente, conduciendo en el coche por la rotonda de la raya del terme, pierdes el control del coche (creo) y tienes un accidente multiple.
+Estás con << amigo J >> pegandoos en broma cuando de repente, conduciendo en coche por la rotonda de la raya del terme, pierdes el control (creo) y tienes un accidente multiple.
 
 A pesar del impacto intentas salir conduciendo de la rotonda.
 Pero estás aturdido y das varios trompos
@@ -418,7 +418,7 @@ Alguien te dice: qué, muchacho, te están haciendo la pelicula
 
 > (En plan mental, como si te quisiera decir que no te lo tome el accidente tan a pecho xd)
 
-Al salir vuelves andando hasta benicarlo. Hay un paso de cebra en Neptuno y se esta liando porq los coches no paran.
+Al salir vuelves andando hasta benicarlo. Hay un paso de cebra en Neptuno y se está liando porq los coches no paran.
 
 Vas a cruzar, para pararte en medio y que la gente pueda pasar.
 Hay un señor mayor, así que le puedes ayudar a cruzar.
@@ -438,13 +438,13 @@ El increpador hace de maton ... (es << huracán MP >>) y es bastante original di
 
 En un difuso inicio, estáss cachondo y de camino a tu pueblo.
 Llegas a la estacion de castellon para coger l tren de noche.
-Es una variacion de estación irreal, fantasiosa y antigua. te gustaba.
+Es una variacion de estación irreal, fantasiosa y antigua. te gusta.
 
 No sabes a que hora llegaba el tren, piensas en salir a una mesa a estudiar.
-Pronto te das cuenta de que tendras poco tiempo.
+Pronto te das cuenta de que tendrás poco tiempo.
 Que es mejor dirigirse a las vias del tren.
 
-> [!Como es recurrente en los sueños, siempre, o casi siempre, que cojo un telf movil te atoro y no consigo hacer nada. Esta vez era con la compra del billete de tren por la app (en taquilla era tarde para comprar).]
+> [!Como es recurrente en los sueños, siempre, o casi siempre, que cojo un telf movil me atoro y no consigo hacer nada. Esta vez era con la compra del billete de tren por la app (en taquilla era tarde para comprar).]
 
 Quedaban cinco mins para que llegara y no te aclaras con la nueva actualización.
 Te ayudan los de renfe/seguridad que estan cerca del torno y así logras comprar el billete.
@@ -487,9 +487,9 @@ Es mas alta y mas arreglada.
 Sabes que es una trampa e intentas escaparte de ella.
 Pero cerca de tus padres, no quieres dejarlos solos.
 Ella te atrapa, te exige que vayas con ella.
-tu no quieres.
+tú no quieres.
 En ese instante y expresando un sentimiento de furia, crea una escena donde un coche la atropella.
-Muy irreal para ti, pero suficiente para engañar al resto de gete. Todo teatro, pero verosímil.
+Muy irreal para tí, pero suficiente para engañar al resto de gete. Todo teatro, pero verosímil.
 
 Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sangre falsa.
 Y tú, ‘culpable’, te exige que te vaya con ella o sufrirás. 
@@ -515,22 +515,22 @@ Tu madre repite, como siempre que hay una pelicula gore/terror: ayyy cambialaa
 
 > Cobras de la orquesta y de repente estás ...
 > (me estoy acordando de cosas. vale sí)
-> ... Estas en un ring pque Vas a pelearte con alguien, es la primera vez que te peleas y piensas que vas a perder.
+> ... estás en un ring pque Vas a pelearte con alguien, es la primera vez que te peleas y piensas que vas a perder.
 > No estás nervioso
 
 Tienes rabia, ganas de luchar, sensación de pelea.
 Son dos asaltos
-En el primero no estas luchado tu, estas luchando otro, ti "compañero de pelea", que lo hace bien.
+En el primero no estas luchado tú, le toca luchar a tu "compañero de pelea", que lo hace bien.
 Lo está haciendo muy bien, hasta que el otro le machaca lanzandole contra una columna de las afueras del escenario.
 No te sorprende pero te decepciona esa situación
 
-comienza el segundo asalto, tu soy el que pelea. Va bien
+comienza el segundo asalto, y es tu turno. Va bien
 
-en el descanso te doy cuenta de que tienes cosas en los bolsillos, pasta de la orquesta, movil llaves ...
+en el descanso te das cuenta de que tienes cosas en los bolsillos, pasta de la orquesta, movil llaves ...
 
-lo utilizo de escusa para hablar/ligar con una chica del público, ves que el jefe de la orquesta está en el público y cojo las cosas menos el dinero y se lo dejo a la chica
+lo utilizas de escusa para hablar/ligar con una chica del público, ves que el jefe de la orquesta está en el público y cojes las cosas menos el dinero y se lo dejas a la chica
 
-Empieza el combate y lo gano.
+Empieza el combate y lo ganas.
 Mi primer combate profesional.
 Todo guay
 
@@ -545,7 +545,7 @@ Está un poco rellena, tiene dos pechos grandes y caídos
 el escenario cambia continuamente y el jacuzzy, que ahora es una piscina de piedra en mitad de una plaza pública con comercios.
 Esta´n ahora también amigos por ahí cerca, a tu amiga le empiezas a contar que es muy dificil ser freddie mercury porq la gente no te entiende y 
 
-> Pero en el sueño, a medida que folláis, te cambia el cuerpo y era FM, y mientras tiene sexo con la chica se intercalaban  momentos de tercera persona donde tu te abstraía de ese cuerpo y observaba desde fuera.
+> Pero en el sueño, a medida que folláis, te cambia el cuerpo y eres FM, y mientras tienes sexo con la chica se intercalaban  momentos de tercera persona donde tu te abstraes y observaba desde fuera.
 > En algún momento piensas que esta escena es una demostración de que freddie mercury tenía sexo heterosexual.
 
 a los amigos los ves en una plaza como se divierten, llena de cesped en mitad de londres.
@@ -556,7 +556,7 @@ Que sin la fama puedes ser infravalorado
 
 despues de ese pensamiento te acuerdas de que aún tienes el dinero en los bolsillos.
 los presentes en la plaza con el karaoke os animais a dar una paseo por el centro de londres.
-Algunos se quedan atras, y ves que deivid no
+Algunos se quedan atras, y ves que deiv no
 
 es londres ... lugar por descubrir ... pero tienes confianza por haber ganado en el boxeo. No te va a pasar nada malo
 
@@ -576,24 +576,24 @@ Eso hace que aparezca la chica sexy y volváis a daros placer
 
 ### Escenario de un recinto pueblerino
 
-> ANTES o después ... no sabes (que no sabesrá este un sueño de otro dia? xd), soñé con un videojuego chino, o una situación que se va repitiendo
+> ANTES o después ... no sabes (que no será este un sueño de otro dia? xd), soñé con un videojuego chino, o una situación que se va repitiendo
 > Era como si unos cuantos amigos quedaran para pasar una tarde noche, pero no de fiesta
 
-encuentran un lugar abandonado, y dentro de ese lugar hay un circuito (un tobogán chuingo del que te tiré) al final del tunel había un bar karaoke con piscinas de bolas, medio destrozado y que solo servían cerveza
+encontrais un lugar abandonado, y dentro de ese lugar hay un circuito (un tobogán chuingo del que te tiras) al final del tunel hay un bar karaoke con piscinas de bolas, medio destrozado y que solo servían cerveza
 
 
 > Este fragmento de sueño se repite en formato de videojuego retro, y despúes vivo la simulación, que es "diferente"
 > En la simulación, cuando bajo por el tunel, había chinos por ahí que habían luchado contra el coronavirus y estasn allí para ayudarnos y hacer lo que sea necesario
 
-me hago amigo de un chino y empieza a hacer cosas guays
+te haces amigo de un chino y empieza a hacer cosas guays
 
-depués volvemos a una antigua casa
+depués volveis a una antigua casa
 
- la parte de la casa, tienes que darle la vuelta al coche, pero el coche eran cuatro sillas en forma de cuadrado. ti padre quería que le diera la vuelta pero tu no entendía que te pedía exactamente, por que no había coche,
+ la parte de la casa, tienes que darle la vuelta al coche, pero el coche eran cuatro sillas en forma de cuadrado. tu padre quería que le dieras la vuelta pero tu no entendía que te pedía exactamente, porque no había coche,
 
-Me pongo a jugar al mario kart para desbloquear cre´ditos, que utilizaré para debloquear partes del coche, pienso en las ruedas para ponerselas a la silla, chasis, eje ... cualquier cosa.
+te pones a jugar al mario kart para desbloquear cre´ditos, que utilizarás para debloquear partes del coche, piensas en las ruedas para ponerselas a la silla, chasis, eje ... cualquier cosa.
 
-Me pongo a jugar para desboquearlo y no logro desbloquear nada
+te pones a jugar para desboquearlo y no logras desbloquear nada
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/1DD.jpg)
 
@@ -607,36 +607,36 @@ Me pongo a jugar para desboquearlo y no logro desbloquear nada
 
 > En este sueño tienes la sensación de que se repite. Pero puede que simplemente, mientras se desarrollan los sucesos, Vas pensando en otras cosas posibles, como en una partida de ajedrez
 
-Empiezo con una partida de ajedrez que pierdo.
+Empiezas con una partida de ajedrez que pierdes
 
-Pienso en la partida con cambios (para ganarla)
+Piensas en la partida con cambios (para ganarla)
 
 > En ningún momento creo concreta y mentalmente una partida de ajedrez en el sueño (ojalá). Sólo sé que Estas jugando una partida, que la pierdo y que pienso en cambios. Había vevces que la partida de ajedrez era obvia y otras que no (bueno es igual)
 
-Dentro de la casa del Marqués de Benicarló, que no sabes parecia en nada a la original, hacemos preparativos para grabar música y videoclip
-No tocamos música sino que estamos jugando al ajedrez.
+Dentro de la casa del Marqués de Benicarló, que no se parecia en nada a la original, haceis preparativos para grabar música y un videoclip
+No tocais música sino que estais jugando al ajedrez.
 Pasan situaciónes comúnes de grabación ¿?
 
-La gente se va y te encuentro con ti familia, siguiendo trabajando en una partida de ajedrez, aunque ahora la partida no es evidente.
-La partida es en la vida real. Pienso en moverme detrás de un arbol, o estar en una perspectiva diferente desde donde te ve la gente.
-Estas escapando y para ello atravieso paredes y escalo
+La gente se va y te encuentras con tu familia, siguiendo trabajando en una partida de ajedrez, aunque ahora la partida no es evidente.
+La partida es en la vida real. Piensas en moverme detrás de un arbol, o estar en una perspectiva diferente desde donde te ve la gente.
+Estas escapando y para ello atraviesas paredes y escalas
 
-Termino en al calle ...
+Terminas en al calle ...
 
 > ¿eso es que he ganado? no recuerdo
 
-... es decir salgo de la casa y la gente te busca. Es de noche y como hay toque de queda vuelves para ti casa.
-No soy el único que lo estas haciendo, por que hay una fiesta en una casa y vamos todos hacia allí.
+... es decir salgo de la casa y la gente te busca. Es de noche y como hay toque de queda vuelves para tu casa.
+No eres el único que lo estas haciendo, por que hay una fiesta en una casa y van todos hacia allí.
 De camino, de alguna forma empiezo a hablar con << C de vista >>
-Le doy una personalidad (me he inventado a una persona) mientras hablo con ella en la fiesta.
-Dormimos en un sofa abrazados. te despierto a la mañana siguiente y ella se va antes que tu.
+Le das una personalidad (te invents a una persona) mientras hablas con ella en la fiesta.
+Dormís en un sofa abrazados. te despiertas a la mañana siguiente y ella se va antes que tu.
 
-Al salir te encuentro con un amigo que te cuenta sus movidas (y pasan cosas (¿?))
-mientras vamos de camino a ti antigua casa
+Al salir te encuentras con un amigo que te cuenta sus movidas (y pasan cosas (¿?))
+mientras vad de camino a tu antigua casa
 
-Al llegar, soy un niño pequeño. Y mis amigos tambien son crios.
-Maquinamos un plan para escapar de ahí tipo aventura de niños, y te quedo conS la sensación de que repetimos cosas (o no, es confuso)
+Al llegar, eres un niño pequeño. Y tus amigos tambien son crios.
+Maquinais un plan para escapar de ahí tipo aventura de niños, y te quedas con la sensación de que se repiten cosas (o no, es confuso)
 
-joder, este sueño es complicado
+> joder, este sueño es complicado
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3862.png)
