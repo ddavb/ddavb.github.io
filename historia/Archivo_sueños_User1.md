@@ -15,6 +15,77 @@
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.jpeg)
 
+
+## 2/12/2024 Laberinto
+
+Estamos en la tierra pero debajo se estaba creando un dominó laberinto. Para ello se debía alimentar a una babosa gigante.
+
+Estoy en el pueblo la Aldea, que es una sección de una ciudad enorme.
+Estás en una plaza y no te sitúas.
+Ves mentalmente el mapa de este lugar particular en la Tierra.
+Existen mega estructuras alrededor pero a ti te interesa este mini sección.
+
+Se escucha música por todo el pueblo.
+El grupo de Villareal la Aldea está haciendo un concierto que se retrasmite "en directo".
+Veo el local donde realizan el concierto y está plagado de cámaras y pantallas led.
+Estan tocando un poco mal y hacen cortes, pero el video editado en directo usa IA para seleccionar las mejores partes y que parezca que tocan en directo sin parar y sin repetir las canciones.
+
+Estas fuera con un grupo de gente disfrutando de la fiesta que se setaba montando en una plaza.
+Hablas con alguien de las oportunidades que genera a la gente pertenecer al colectivo musical y hacer cosas a lo largo de tu vida ... 
+
+Se te olvida que estás en la Aldea y el entorno ahora pertenece a Benicarló.
+Está el Felipe II, con una musculatura espectacular y sin camiseta.
+Parece una persona de pueblo más, está caminando para hacer algo.
+Como parte de una organización humilde, que está moviendo bidondes de cerveza para cuando comience el guateque.
+
+Ves un camión que pertenece a una cabalgata.
+Tiene un lateral del remolque abierto. También lo está por detrás.
+Hay gente amontonada alrededor, y dentro del remolque.
+
+Una chica con los ojos preciosos te mira, esperando a que vayas a hablar con ella.
+Te decides a preguntar que hay ahí dentro y te comenta por encima:
+
+- Ven ven, mira.
+
+- Ahora no quiero. - dices confuso
+
+- Va ven - te dice de forma cariñosa
+
+Te acercas pero no ves gran cosa, solo un depósito conectado con el subsuelo donde tiran cosas.
+Vas a la parte trasera y ves una especie de bolas almacenadas.
+Son bellotas con el fruto verde radioactivo.
+Son del tamaño de s sandías.
+No son uniformes/homogéneas entre sí, variaban mucho entre cada bellota.
+
+- Mira. Esto son las bellotas que la babosa ha de selecciónar para continuar con el dominó.
+Una vez lo termine se habrá completado el laberinto - dice ella -
+Les estamos pidiendo a la babosa que nos responda que tamaño de bellota necesita, por que no podemos tirar cualquiera ahí dentro. Estamos esperando a su respuesta.
+Hay veces que el tamaño es demasiado grande, por lo que no encaja en su estructura y las paredes que construye son endebles.
+Otras veces es lo que quiere, para crear puertas escondidas en las paredes para entrar y salir,
+No está indicado, eso solo lo puede saber algien experto del laberinto que se lo haya recorrido.
+
+Antes de despertarte, ha habido alguien no experto que consigió salir del laberinto.
+Consigió superarlo gracias a un collar de maíz, por el cual escribió una carta en prosa (no lo recuerdas bien, pero te hubiera gustado que fuera así):
+
+Con el collar conseguí escapar
+Cada grano lo puede indicar
+Se siembra entre enero y septiembre
+Alimenta al humano cuando procede
+
+
+
+
+## 10/11/2024 Angustia
+
+## 7/11/2024 ...
+
+## 5/11/2024 ...
+
+## 22/10/2024 Peñismal
+
+## 10/10/2024 Sueño breve iaio
+
+
 ## 23/09/2024 Intermedio en China
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)

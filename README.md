@@ -1,6 +1,7 @@
 # ddavb.github.io
 
 - Archivo anónimo de sueños. En proceso ...
+La idiosincrásia de este proceso de escritura gratuito incluye poca dedicación, representada mediante poca coherencia textual y faltas de ortografía.
 
 # AGRUPACIÓN:
 
