@@ -1,5 +1,11 @@
 # SUEÑOS crudos por editar
 
+   - [Laberinto](#02122024-Laberinto)
+   - [Angustia](#10112014-Angustia)
+     - [...](#07112024-...)
+     -  [...](#05112024-...)
+       - [Peñismar.](#22102024-Peñismar)
+         - [Intermedio del iaio](#10102024-Sueño breve iaio)
   - [Intermedio en China](#23092024-Intermedio-en-China)
   - [Karma](#20092024-Karma)
   - [Haz cola para recordar](#18.09.2024-Haz-cola-para-recordar)
@@ -73,6 +79,7 @@ Se siembra entre enero y septiembre
 Alimenta al humano cuando procede
 
 
+![conjunto mejor](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_5688.png)
 
 
 ## 10/11/2024 Angustia
