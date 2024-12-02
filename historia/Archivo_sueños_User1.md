@@ -160,7 +160,7 @@ Cansado pero activo, te pregunta si saldras de noche y le dices que no. El es RR
 > Para cuando acaboó la conversación había un montón de gente sentada
 
 
-> En algún momento apareces en un bar. estass con el hermano de << areyenS >> es estado invalido
+> En algún momento apareces en un bar. estass con el hermano de << areyenS >>. Está invalido
 > Te pregunta sobre las oposiciones y tu contestas. Te preguntan si estas bien.
 > Te da la sensación de que ellos piensan que estas triste por haber suspendido, pero teextrañas pq aún no has hecho exámenes recientemente.
 
@@ -213,8 +213,8 @@ Habían mas mujeres mostrando sus pechos y más voces diciendo "anonimo" no te v
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 Caminando por la av. papa luna ves de lejos a < R-MIR >.
-Te había visto pero no quieres saludarla hasta estar cerca.
-Ella parece que esta buscando algo por el suelo.
+Ella también te ha visto pero no quieres saludarla hasta estar cerca.
+Ella está buscando algo por el suelo ...
 
 - Pues es que te tendría que haber llegado un coche pero por tamaño no lo han podido dejar - dijo
 
@@ -311,30 +311,32 @@ En ese momento ves que te está escribiendo por instagram para contarte que ha s
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-> iba con padre y hermano con una furgoneta de viaje. No, con el peugeot.
-> veniamos de algún sitio y ibamos a un sitio indeterminado
+> vas con tu padre y hermano en una furgoneta de viaje. No, con el peugeot.
+> veniis de algún sitio y vais a otro sitio indeterminado
 
-De donde volviamos, nos mandaron un mensaje, y ti padre que conducia se puso a leerlo y dejó los mandos del volante
-Intenté avisar de que había un semaforo en rojo. Cojo el volante, empeciezo a esquivar coches.
+De donde venís, os mandaron un mensaje.
+Tu padre que conduce se pone a leerlo y deja los mandos del volante
+Intentas avisarle de que había un semaforo en rojo. Cojes tu finalmente el volante y empeciezas a esquivar coches.
 
 - ¿PADRE QUE HACES?, presta atención ¡ COJE EL VOLANTE !
 
-- pero si ya sabes donde está el embrage - dijo, con intención de decir hazlo tú
+- pero si ya sabes donde está el embrage - dice, con intención de decir hazlo tú
 
-pongo el freno de mano, empezamos a derrapar, nos chocamos ... una locura
-tu que estas en schock, pensaba ¿qué cojones acaba de pasar? ti padre no es así, en serio ¿qué ha pasado?
-Cabreadísimo se lo intento explicar a << Dry >>, intento hablar con ti padre, !intento hablar! pero no podía. estas afónico de tanto gritar.
+pones el freno de mano, el coche empieza a derrapar ... chocáis.
+una locura.
+tú que estas en schock piensas ¿qué cojones acaba de pasar? mi padre no es así, en serio ¿qué ha pasado?
+Cabreadísimo se lo intentas explicar a << Dry >>, intentas hablar con tu padre, !intentas hablar! pero no puedes. estas afónico de tanto gritar.
 Drama.
 
-Pienso que igual hay que hacer un parte, llamar a la policía ... hacer algo
+Piensas que igual hay que hacer un parte, llamar a la policía ... hacer algo
 Ellos te dicen vale vale
 
-tu rayadísimo. Empiezo a pensar que he de decir a la policía por que si digo la verdad, al igual meto en problemas a ti padre.
+tu rayadísimo. Empiezas a pensar que has de decirle a la policía, por que si dices la verdad, al igual meto en problemas a tu padre.
 Pero esq algo hay que decir.
 
-Los polis no les interesaba el asunto: ay no sabes qué, valo esto, si ... iros y os avisamos
+A Los polis no les interesa el asunto: ay no sabes qué, valo esto, si ... iros y os avisamos
 
-- ¿Pero que pasa con nuestra furgoneta? - pregunto
+- ¿Pero que pasa con nuestra furgoneta? - preguntas
 
 - Si hacéis un parte se quedará dos años aquí ... - muecas de los polis de que quizá lo correcto no es hacer lo correcto
 
@@ -342,17 +344,17 @@ Los polis no les interesaba el asunto: ay no sabes qué, valo esto, si ... iros 
 
 - yaa ya, es que al igual no os interesa hacer un parte
 
-Padre y << Dry >> se varon. tu te quedé con la policía para enseñar la furgoneta, para que vieran que no había nada que investigar dentro, que eramos gente normal que había tenido un accidente. No hacía falta que investigaran dos años la furgoneta.
+Padre y << Dry >> se fueron. tu te quedas con la policía para enseñar la furgoneta por dentro, para que vieran que no había nada que investigar, que sois gente normal que solo ha tenido un accidente. Que no hace falta que investiguen dos años la furgoneta.
 
-Vas a enseñarle la furgoneta por dentro y abro una puerta
+Vas a enseñarle la furgoneta por dentro y abres una puerta
 
-- aquí hay mochilas con cosas (estáis de viaje) - digo
+- aquí hay mochilas con cosas (estáis de viaje) - dices
 
 abro otra puerta
 
-- aquí hay como revistas (me pregunto de donde habían salido). Parece raro pero tiene explicación, sólo son revistas - digo
+- aquí hay como revistas (me pregunto de donde habían salido). Parece raro pero tiene explicación, sólo son revistas - dices
 
-abro otra puerta y hay más revistas. Esta vez revistas porno. Una portada de tetas, otra con el título CULONAS
+abres otra puerta y hay más revistas. Esta vez revistas porno. Una portada de tetas, otra con el título CULONAS
 
 - BFF esto ... bueno esto parece más raro. En todo caso no es mío.
 
