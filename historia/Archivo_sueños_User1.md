@@ -26,12 +26,12 @@ Mmmmm no me van los links :(
 
 ## 2/12/2024 Laberinto
 
-Estamos en la tierra y debajo se estaba creando un dominó laberinto. Para ello se debía alimentar a una babosa gigante.
+Estas en la tierra y debajo se estaba creando un dominó laberinto. Para ello se debía alimentar a una babosa gigante.
 
 Estas en el pueblo la Aldea, que es una sección de una ciudad enorme.
-Estás en una plaza y no te sitúas.
-Ves mentalmente el mapa de este lugar particular de la Tierra.
-Existen mega estructuras alrededor pero a ti te interesa este mini sección.
+Observas una plaza y no te sitúas.
+Mentalmente ves en google maps este lugar particular de "la Tierra".
+Existen mega estructuras alrededor pero a ti te interesa esta mini sección.
 
 Se escucha música por todo el pueblo.
 El grupo de Villareal la Aldea está haciendo un concierto que se retrasmite "en directo".
