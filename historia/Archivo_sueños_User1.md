@@ -13,7 +13,7 @@
   - [16-01-2021 Una partida confusa](#Una-partida-confusa)
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.jpeg)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.png)
 
 
 ## 2/12/2024 Laberinto
@@ -525,6 +525,6 @@ Maquinamos un plan para escapar de ahí tipo aventura de niños, y me quedo conS
 joder, este sueño es complicado
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3862.jpeg)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3862.png)
 
 
