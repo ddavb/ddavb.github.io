@@ -96,7 +96,7 @@ Consigió superarlo gracias a un collar de maíz, por el cual escribió este tex
 
 ## 10/10/2024 Sueño breve iaio
 
-Estas en un coche, un sub negro.
+Estáss en un coche, un sub negro.
 Conduce tu iaio de 99 años, que de repente está para conducir. En verdad no no mucho.
 Tu vas diciendo Uh uh uuuh mientras te lleva en carril contrario por la avenida Papa Luna.
 
@@ -122,10 +122,14 @@ Quizá le venga bien para andar
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-Estas en una ciudad China enorme. Una ciudad planificada que posee edificios majestuosos, parques y árboles encantadores ... inefable!
+Observas una ciudad China enorme.
+Una ciudad planificada que posee edificios majestuosos, parques y árboles encantadores ... inefable!
 
-En algún momento empiezas a volar de forma natural. Observas los edificios y lo contemplas todo.
-Te aposentas con el abdomen en una de las columnas griegas construidas en medio de un paseo que conecta dos distritos con edificios asombrosos. Tomas consciencia de que puedes volar, que quieres compartirlo con alguien, que esa capacidad es sublime y que tienes que controlarla. Ese deseo te despierta.
+En algún momento empiezas a volar de forma natural.
+Observas los edificios y lo contemplas todo.
+Te aposentas con el abdomen en una de las columnas griegas construidas en medio de un paseo que conecta dos distritos con edificios asombrosos.
+Tomas consciencia de que puedes volar, que quieres compartirlo con alguien, que esa capacidad es sublime y que tienes que controlarla.
+Ese deseo te despierta.
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/MURETE.png)
 
@@ -140,7 +144,7 @@ Te aposentas con el abdomen en una de las columnas griegas construidas en medio 
 > recuerdo al del saxo de la ludwig ... pero nomás
 
 Vas en una furgoneta con mas gente y os paran en un control policial/militar.
-Estáis preocupados por que debíamois llevar algo ilegal.
+Estáis preocupados por que debíais llevar algo ilegal.
 Mientras piensas que sería genial que pasara algo para libraros del control, explota algo a lo lejos.
 Todos los que estasn en el control se van, no sin antes intercambiar palabras con un agente
 
@@ -148,11 +152,11 @@ Todos los que estasn en el control se van, no sin antes intercambiar palabras co
 
 - confiamos en el buen hacer ciudadano de que dejaréis la furgoneta aquí y no la tocaréis para el control
 
-- sí, y los huevos también - dices por mitu parte
+- sí, y los huevos también - dices por tu parte
 
 
 > Te largas y acabas en una especie de escaleras de metro, donde estas sentado << pújil >>.
-Cansado pero activo, mte pregunta si saldras de noche y le dices que no. El es RRPP o portero de algún sitio y se estas pegando una semanita de. fiesta del copón, sin buscarlo.
+Cansado pero activo, te pregunta si saldras de noche y le dices que no. El es RRPP o portero de algún sitio y sin quererlo se estaá pegando una semanita de fiesta del copón.
 > Para cuando acaboó la conversación había un montón de gente sentada
 
 
@@ -162,21 +166,29 @@ Cansado pero activo, mte pregunta si saldras de noche y le dices que no. El es R
 
 > Esta conversación se alarga pero no te acuerdas de mas detalles.
 
-> Luego estas en , en mitu habitación con << Dry >> y << amigoJ >>, jugando a la gamecube.
+> Luego estás en , en tu habitación con << Dry >> y << amigoJ >>, jugando a la gamecube.
 > De alguna forma te quedas sólo y del resto tampoco te acuerdo
 
 
 ### 2nd round vacilado
 
-estas en un recindo muy grande y lleno de gente.
-era como una entrega de premios privada de una orquesta. había pasarelas y gente animando, música, luces ...
+Estás en un recindo muy grande y lleno de gente.
+Es como una entrega de premios privada de una orquesta.
+Hay pasarelas y gente animando, música, luces ...
 
-estan a punto de llamar a los músico para darles algún premio.
-Le dicen a << Dry >> y a ti de subir a recibir premios. tuTu piensoas que al no haber hecho la ttemporada de verano con esa orquesta, no mereces ese reconocimiento. has hecho algún bolo pero ya te lo habías dejado. Y Mr.Dri tampoco lo merecía porq no tiene nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, pues que se fastidien.
+Están a punto de llamar a los músico para darles algún premio.
+Le dicen a << Dry >> y a ti de subir a recibir premios. Tu piensas que al no haber hecho la ttemporada de verano con esa orquesta, no mereces ese reconocimiento. has hecho algún bolo pero ya te lo habías dejado. Y Mr.Dri tampoco lo merecía porq no tiene nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, ¡que se fastidien!.
 
-está petadísimo todo. en la pasarela, al principio del todo justo al subir, estas eufñorico y te pones a bailar tektonic, cuatro/5 personas del público únicamente te ven bailar y les hace gracia
+está petadísimo todo. en la pasarela, al principio del todo justo al subir, estas eufórico y te pones a bailar tektonic.
+Únicamente  te ven bailar cuatro/5 personas del público y les hace gracia
 
-vamos nos dan una medalla y bajamos. tu piensas en el dinero que habrá constado pero ... pa mti. hablamos con el jefe de la rquesta, toca irse para casa. un amigo se va ultra rápido. te asomo a la calle doctor fleming? la de balaguer. ves a la derecha que hay un grupito de chicas en un portal que está saludando. están arregladas, vestidas para salir de fiesta. miro a la izqauierda y hay otro grupido de chicos/chicas que devuelven el saludo.
+Váis, os dan una medalla y bajáis.
+tu piensas en el dinero que habrá constado pero ... pa ti. hablas con el jefe de la orquesta, toca irse para casa.
+un amigo se va ultra rápido.
+te asomas a la calle doctor fleming? la de balaguer.
+ves a la derecha que hay un grupito de chicas en un portal que está saludando.
+están arregladas, vestidas para salir de fiesta.
+miras a la izqauierda y hay otro grupido de chicos/chicas que les devuelven el saludo.
 Vaya, no te saludan a ti.
 
 
@@ -184,9 +196,14 @@ Vaya, no te saludan a ti.
 
 
 Cierras la puerta y piensas en irte a casa, miras el movil para ver si tu padre nosos viene a recoger, pero como ves que es un lio decides ir andando.
-Aparece << Ana de la carrera >> y te dice que no te vaya que aún es pronto. Le dices que te Vas igualmente que ya lo has decidido. Das un par de pasos, aparecen las chicas de antes y te dicen que no te vaya. Les dices lo mismo. Das un par de pasos más. Miras atrás mientras una chica te repite que no te vaya y te enseña un poco los pechos. Sigues andando y vuelves a mirar atrás. Ahora se le ves claramente los pechos. Sigues andando y obviamente vuelves a mirar atrás. Habían mas mujeres mostrando sus pechos y más voces diciendo "anonimo" no te vayaaas, "anonimoooo"
-  
-
+Aparece << Ana de la carrera >> y te dice que no te vaya que aún es pronto.
+Le dices que te Vas igualmente que ya lo has decidido.
+Das un par de pasos, aparecen las chicas de antes y te dicen que no te vaya.
+Les dices lo mismo. Das un par de pasos más.
+Miras atrás mientras una chica te repite que no te vaya y te enseña un poco los pechos.
+Sigues andando y vuelves a mirar atrás.
+Ahora se le ves claramente los pechos. Sigues andando y obviamente vuelves a mirar atrás.
+Habían mas mujeres mostrando sus pechos y más voces diciendo "anonimo" no te vayaaas, "anonimoooo"
   
  
 
@@ -196,19 +213,21 @@ Aparece << Ana de la carrera >> y te dice que no te vaya que aún es pronto. Le 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 Caminando por la av. papa luna ves de lejos a < R-MIR >.
-Me había visto pero no quería saludarla hasta estar cerca.
-Ella parece que estas buscando algo por el suelo.
+Te había visto pero no quieres saludarla hasta estar cerca.
+Ella parece que esta buscando algo por el suelo.
 
 - Pues es que te tendría que haber llegado un coche pero por tamaño no lo han podido dejar - dijo
 
 La calle estas desierta pero todos los aparcamientos eran zona para el autobús y zona amarilla
 
-Asumo que no podía ayudar y te fuí.
-Cuando llegué a ticana entré y era una oficina del ayuntamiento pero con alma de pescadería.
-Había que cojer tiket y estas toda la sala llena, también las ventanillas para atender a la gente.
-La gente cojía los tikets de 4 en 4 y tu también lo hice cuando se te acabó la amabilidad y tuve la oportunidad de poner la mano para arrancar de cuajo un fajo de tickets.
+Asumes que no puedes ayudar y te vas.
+Cuando lleguas a ticana entras.
+Ticana es diferente ... es una oficina del ayuntamiento y con alma de pescadería.
+Hay que cojer tiket y está toda la sala llena.
+También las ventanillas para atender a la gente.
+La gente coje los tikets de 4 en 4 y tu también lo haces cuando se te acaba la amabilidad y ves la oportunidad de poner la mano para arrancar de cuajo un fajo de tickets.
 
-> no recuerdo esto pero va algo así:
+> Esto no lo recuerdo, pero cantan los turnos de forma así:
 >
 > - El dos
 >
@@ -218,50 +237,56 @@ La gente cojía los tikets de 4 en 4 y tu también lo hice cuando se te acabó l
 >
 > - El 2 y el tres
 
-Me lanzo a una ventanilla que estas vacía y digo tu!
-Menudo espectáculo pensé.
-Me fijo en quién te atendería en esa ventanilla y era la tuutuber gata de Schrödinger (no te sé su nombre real).
+Te lanzas a una ventanilla que estas vacía y dices: YO!
+Menudo espectáculo piensas.
+Te fijas en quién te atenderá en esa ventanilla, y es Rocío, la youtuber gata de Schrödinger .
 
 - ¿Qué tal?, ¿qué alegría no? de ser *medio trabajador parcial de timpo completo*
 
-> A ti te sorprendió que supiera eso de mi, pero claro, tiene la base de datos de ti vida laboral en el ordenador.
+> A ti te sorprende que supiera eso de ti, pero claro, tiene la base de datos de ti vida laboral en el ordenador.
 
-- Eso es equivalente a un B2 de inglés - te dijo
+- Eso es equivalente a un B2 de inglés - te dice
 
-- Sí, es una pena que no haya hecho los exámenes por que ahora tendría el título. Creo que tienes el B1. O ni eso tampoco, no lo recuerdo. - dije tímido
-Ella te hizo entender que valoraba lo práctico antes que un título.
+- Sí, es una pena que no haya hecho los exámenes por que ahora tendría el título. Creo que tienes el B1. O ni eso tampoco, no lo recuerdo. - dices tímido
+Ella te da a entender que valoraba lo práctico antes que un título.
 
-Hablamos de la orquesta por mis datos laborales, pero ella te conocía de más cosas. De un concierto del que tu también te acordaba.
+Hablais de la orquesta por tus datos laborales, pero ella te conocía de más cosas.
+De un concierto del que tu también te acuerdas.
 El concierto salió en la tele y habían más grupos.
-estas contento por que te conociera y te recordara de ese concierto, aunque te da un poco de pena que sea por la orquesta y no con algún grupo guay que tuve.
-Me hubiera gustado que te dijera, sí te vi con < PD > tocando < Me-voy-a-comprar-unos-Chetoos>
+estás contento por que te conozca y te recuerde de ese concierto, aunque te da un poco de pena que sea por la orquesta y no por algún grupo guay que tuviste.
+Te hubiera gustado que te dijera, sí te vi con < PD > tocando < Me-voy-a-comprar-unos-Chetoos>
 
-> Le empecé a contar cosas de ese día, te salía de dentro.
+> Le empezas a contar cosas de ese día, te sale de dentro.
 
-- Pues el fragmento del concierto que salió en la tele, que va previo al fragmento del concierto de Lèpoka, va de la orquesta < SM >. - Dije mientras ella hacía muecas para transmitirme que ya lo sabía. Lo he visto te dijo.
-tu seguía con un: pero podría haber sido de << Dale Pomada >>, pero por tonterías no lo fué.
+- Pues el fragmento del concierto que salió en la tele, que va previo al fragmento del concierto de Lèpoka, va de la orquesta < SM >. - Dices mientras ella hace muecas para transmitirme que ya lo sabe. Lo he visto, te dice.
+tu sigues con un: pero podría haber sido de << Dale Pomada >>, pero por tonterías no lo fué.
 
 > Aquí le cuento una história que te hace perder el hilo del sueño:
 
-En ese momento todo ti alrededor cambió. te encontraba reviviendo el recuerdo de un día con << areyenS >>, donde visitábamos el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" ...
+En ese momento todo a ti alrededor cambia.
+te encuentras reviviendo un recuerdo de un día con << areyenS >>, donde visitásteis el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" ...
 
 > Ese recuerdo en la vida real nunca existió, pero en el sueño lo vivo como un recuerdo
 
-... era que tu tiene un movil en la mano y le estas contando a la gata de S en una llamada la historia mientras la revivía.
+... es que ahora, miestras revives el recuerdo en primera persona, tú tienes un movil en la mano mientras se o estás contando a la gata de S en una llamada.
 
-El lugar era un poco chungo. A las afuerass de una nave medio derruida, con descampado por los alrededores y desniveles con arena y cables y vigas tirados de cualquier manera. Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, canela de la arena, gris azulado por los postes de electricidad ...
-tu por teléfono ya había dicho que al final no tocamos por que a << Zapatero >> no le pareció buena idea.
+
+El lugar era un poco chungo. A las afueras de una nave medio derruida, con descampado por los alrededores y desniveles con arena y cables y vigas tirados de cualquier manera.
+Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, canela de la arena, gris azulado por los postes de electricidad ...
+
+Tu por teléfono ya has dicho que al final no tocasteis por que a << zapatero >> no le pareció buena idea.
 Que podríamos haber grabado todo con video y audio y que va una pena no habernos puesto de acuerdo.
 < areyenS > asentía con ímpetu.
 
-Mientras revivía el recuerdo, a << areyenS >> y a ti nos daba rabia porq a nosotros sí que nos hubiera gustado tocar.
-Ibamos caminando por el lugar en cuestión, con un pedo tremendo.
+Mientras revivías el recuerdo, a << areyenS >> y a ti os dió un poco de rabia, porq a nosotros sí que nos hubiera gustado tocar.
+Váis caminando por el lugar en cuestión, con un pedo tremendo.
 Bajando por un desnivel, << areyenS >> dió un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
-tu tiene que hacer lo mismo pero con la borrachera fui con sumo cuidado, a cuatro patas y despacito.
-A mitad de la distancia te caí de espaldas, pero el suelo estas cerca y va como caer de una hamaca encima de la suave arena.
+tu tienes que hacer lo mismo, pero con la borrachera vas con sumo cuidado, a cuatro patas y despacito.
+A mitad de la distancia te caes de espaldas.
+El suelo está cerca y es como caer de una hamaca encima de la suave arena.
 El resto de desnivel lo bajas como si fuera un tobogán.
 
-Mientras seguimos caminando, poco a poco Vas abriendo los ojos secos por no haber bebido suficiente agua
+Mientras seguís caminando, poco a poco Vas abriendo los ojos secos por no haber bebido suficiente agua
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/playa.jpg)
 
@@ -271,11 +296,13 @@ Mientras seguimos caminando, poco a poco Vas abriendo los ojos secos por no habe
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-cena familiar y ti padre hace algo torpe con lo que le hechamos la bronca
+>cena familiar y tu padre hace algo torpe con lo que le hechamos la bronca
 
-caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueños. son dos chinos y estasn fumando. te enseñan unas hamburguesas que tienen una pinta brutal ... tremenda ... pienso que es un buen lugar para tener en cuenta y le mando una foto del sitio a << M Gal >>. En ese momento ves que te está escribiendo por instagram para contarme que ha soñado. 
+caminando por UMA encuentras un nuevo local. Los dueños están en la terraza.
+son dos chinos y están fumando. te enseñan unas hamburguesas que tienen una pinta brutal ... tremenda ... piensas que es un buen lugar para tener en cuenta y le mandas una foto del sitio a << MG >>. 
+En ese momento ves que te está escribiendo por instagram para contarte que ha soñado. 
 
-Me despierto rápido y tardo en asimilar que era un sueño
+> Te despiertas rápido y tardas en asimilar que era un sueño
 
 
 
