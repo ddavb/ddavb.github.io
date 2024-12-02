@@ -1,6 +1,6 @@
 # SUEÑOS crudos por editar
 
-Mmmmm no me van los links :(
+Mmmmm no te van los links :(
 
    - [Laberinto](#02122024-Laberinto)
    - [Angustia](#10112014-Angustia)
@@ -26,25 +26,26 @@ Mmmmm no me van los links :(
 
 ## 2/12/2024 Laberinto
 
-Estas en la tierra y debajo se estaba creando un dominó laberinto. Para ello se debía alimentar a una babosa gigante.
+> Estás en la tierra y debajo se está creando un dominó laberinto. Para ello se debe alimentar a una babosa gigante.
 
-Estas en el pueblo la Aldea, que es una sección de una ciudad enorme.
+Te encuentras en el pueblo la Aldea, que es una sección de una ciudad enorme.
 Observas una plaza y no te sitúas.
 Mentalmente ves en google maps este lugar particular de "la Tierra".
 Existen mega estructuras alrededor pero a ti te interesa esta mini sección.
 
 Se escucha música por todo el pueblo.
 El grupo de Villareal la Aldea está haciendo un concierto que se retrasmite "en directo".
-Ves el local donde realizan el concierto y está plagado de cámaras y pantallas led.
-Estan tocando un poco mal y hacen cortes, pero el video editado en directo usa IA para seleccionar las mejores partes y que parezca que tocan en directo sin parar y sin repetir las canciones.
+Ves el local donde lo realizan y está plagado de cámaras y pantallas led.
+Están tocando un poco mal y hacen cortes. Pero el video editado en directo usa IA para seleccionar las mejores partes y que parezca que tocan en directo sin parar y sin repetir las canciones.
 
-Estas fuera con un grupo de gente disfrutando de la fiesta que se setaba montando en una plaza.
+Estás ahora con un grupo de gente disfrutando de la fiesta que se está montando en una plaza.
 Hablas con alguien de las oportunidades que genera a la gente pertenecer al colectivo musical y hacer cosas a lo largo de tu vida ... 
 
 Se te olvida que estás en la Aldea y el entorno ahora pertenece a Benicarló.
-Está Felipe II, sin camiseta y con una musculatura espectacular. Es raro por que tiene tremendos pectorales en los homoplatos. Pero se le ve fardar de cuerpazo.
+Está Felipe II, sin camiseta y con una musculatura espectacular. Es raro por que tiene tremendos pectorales en los homoplatos.
+De todas formas se le ve fardar de cuerpazo.
 Parece una persona de pueblo más, caminando para hacer algo ...
-Como si fuera parte de una organización humilde, que está moviendo bidondes de cerveza para cuando comience el guateque.
+Como si formara parte de una organización humilde, que está moviendo bidondes de cerveza para cuando comience el guateque.
 
 Ves un camión que pertenece a una cabalgata.
 Tiene un lateral del remolque abierto. También lo está por detrás.
@@ -61,7 +62,7 @@ Te decides a preguntar que hay ahí dentro y te comenta por encima:
 
 Te acercas pero no ves gran cosa, solo un depósito conectado con el subsuelo donde tiran cosas.
 Vas a la parte trasera y ves una especie de bolas almacenadas.
-Son bellotas cuyo fruto es verde radioactivo.
+Son bellotas cutu fruto es verde radioactivo.
 Son del tamaño de s sandías.
 No son uniformes/homogéneas entre sí, varian mucho entre cada bellota.
 
@@ -72,13 +73,14 @@ Hay veces que el tamaño es demasiado grande, por lo que no encaja en su estruct
 Otras veces es lo que quiere, para crear puertas escondidas en las paredes para entrar y salir,
 Estas puertas no está indicadas. solo las ubican los expertos del laberinto, que previamente han debido recorrerlo.
 
-Antes de despertarte, descubres un objeto histórico relevante. Es una carta en prosa escrita por una persona no experta que consigió salir del laberinto.
+Antes de despertarte, descubres un objeto histórico relevante.
+Es una carta en prosa escrita por una persona no experta que consigió salir del laberinto.
 Consigió superarlo gracias a un collar de maíz, por el cual escribió este texto (no lo recuerdas bien, pero te hubiera gustado que fuera así):
 
-Con el collar conseguí escapar
-Cada grano lo puede indicar
-Se siembra entre enero y septiembre
-Alimenta al humano cuando procede
+> Con el collar conseguí escapar
+> Cada grano lo puede indicar
+> Se siembra entre enero y septiembre
+> Alimenta al humano cuando procede
 
 
 ![conjunto mejor](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_5688.png)
@@ -115,7 +117,6 @@ Quizá le venga bien para andar
 
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/MURETE.png)
 
 ## 23/09/2024 Intermedio en China
 
@@ -126,6 +127,7 @@ Estas en una ciudad China enorme. Una ciudad planificada que posee edificios maj
 En algún momento empiezas a volar de forma natural. Observas los edificios y lo contemplas todo.
 Te aposentas con el abdomen en una de las columnas griegas construidas en medio de un paseo que conecta dos distritos con edificios asombrosos. Tomas consciencia de que puedes volar, que quieres compartirlo con alguien, que esa capacidad es sublime y que tienes que controlarla. Ese deseo te despierta.
 
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/MURETE.png)
 
 
 
@@ -140,7 +142,7 @@ Te aposentas con el abdomen en una de las columnas griegas construidas en medio 
 Vas en una furgoneta con mas gente y os paran en un control policial/militar.
 Estáis preocupados por que debíamois llevar algo ilegal.
 Mientras piensas que sería genial que pasara algo para libraros del control, explota algo a lo lejos.
-Todos los que estaban en el control se van, no sin antes intercambiar palabras con un agente
+Todos los que estasn en el control se van, no sin antes intercambiar palabras con un agente
 
 > debió de ser algo así la conversación:
 
@@ -149,19 +151,19 @@ Todos los que estaban en el control se van, no sin antes intercambiar palabras c
 - sí, y los huevos también - dices por mitu parte
 
 
-> Te largas y acabas en una especie de escaleras de metro, donde estaba sentado << pújil >>.
-Cansado pero activo, mte pregunta si saldras de noche y le dices que no. El es RRPP o portero de algún sitio y se estaba pegando una semanita de. fiesta del copón, sin buscarlo.
+> Te largas y acabas en una especie de escaleras de metro, donde estas sentado << pújil >>.
+Cansado pero activo, mte pregunta si saldras de noche y le dices que no. El es RRPP o portero de algún sitio y se estas pegando una semanita de. fiesta del copón, sin buscarlo.
 > Para cuando acaboó la conversación había un montón de gente sentada
 
 
-> En algún momento apareces en un bar. Estabas con el hermano de << areyenS >> es estado invalido
-> Te pregunta sobre las oposiciones y tu contestaba. Te preguntan si estas bien.
+> En algún momento apareces en un bar. estass con el hermano de << areyenS >> es estado invalido
+> Te pregunta sobre las oposiciones y tu contestas. Te preguntan si estas bien.
 > Te da la sensación de que ellos piensan que estas triste por haber suspendido, pero teextrañas pq aún no has hecho exámenes recientemente.
 
 > Esta conversación se alarga pero no te acuerdas de mas detalles.
 
 > Luego estas en , en mitu habitación con << Dry >> y << amigoJ >>, jugando a la gamecube.
-> De alguna forma te quedas sólo y del resto tampoco me acuerdo
+> De alguna forma te quedas sólo y del resto tampoco te acuerdo
 
 
 ### 2nd round vacilado
@@ -170,11 +172,11 @@ estas en un recindo muy grande y lleno de gente.
 era como una entrega de premios privada de una orquesta. había pasarelas y gente animando, música, luces ...
 
 estan a punto de llamar a los músico para darles algún premio.
-Le dicen a << Dry >> y a ti de subir a recibir premios. YoTu piensoas que al no haber hecho la ttemporada de verano con esa orquesta, no mereces ese reconocimiento. has hecho algún bolo pero ya te lo habías dejado. Y Mr.Dri tampoco lo merecía porq no tenía nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, pues que se fastidien.
+Le dicen a << Dry >> y a ti de subir a recibir premios. tuTu piensoas que al no haber hecho la ttemporada de verano con esa orquesta, no mereces ese reconocimiento. has hecho algún bolo pero ya te lo habías dejado. Y Mr.Dri tampoco lo merecía porq no tiene nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, pues que se fastidien.
 
-está petadísimo todo. en la pasarela, al principio del todo justo al subir, estaba eufñorico y te pones a bailar tektonic, cuatro/5 personas del público únicamente te ven bailar y les hace gracia
+está petadísimo todo. en la pasarela, al principio del todo justo al subir, estas eufñorico y te pones a bailar tektonic, cuatro/5 personas del público únicamente te ven bailar y les hace gracia
 
-vamos nos dan una medalla y bajamos. tu piensas en el dinero que habrá constado pero ... pa mti. hablamos con el jefe de la rquesta, toca irse para casa. un amigo se fue ultra rápido. te asomo a la calle doctor fleming? la de balaguer. ves a la derecha que hay un grupito de chicas en un portal que está saludando. están arregladas, vestidas para salir de fiesta. miro a la izqauierda y hay otro grupido de chicos/chicas que devuelven el saludo.
+vamos nos dan una medalla y bajamos. tu piensas en el dinero que habrá constado pero ... pa mti. hablamos con el jefe de la rquesta, toca irse para casa. un amigo se va ultra rápido. te asomo a la calle doctor fleming? la de balaguer. ves a la derecha que hay un grupito de chicas en un portal que está saludando. están arregladas, vestidas para salir de fiesta. miro a la izqauierda y hay otro grupido de chicos/chicas que devuelven el saludo.
 Vaya, no te saludan a ti.
 
 
@@ -182,32 +184,31 @@ Vaya, no te saludan a ti.
 
 
 Cierras la puerta y piensas en irte a casa, miras el movil para ver si tu padre nosos viene a recoger, pero como ves que es un lio decides ir andando.
-Aparece << Ana de la carrera >> y te dice que no te vaya que aún es pronto. Le dices que te Vas igualmente que ya lo has decidido. Das un par de pasos, aparecen las chicas de antes y te dicen que no te vaya. Les dices lo mismo. Das un par de pasos más. Miras atrás mientras una chica te repite que no te vaya y te enseña un poco los pechos. Sigues andando y vuelves a mirar atrás. Ahora se le veía claramente los pechos. Sigues andando y obviamente vuelves a mirar atrás. Habían mas mujeres mostrando sus pechos y más voces diciendo "anonimo" no te vayaaas, "anonimoooo"
+Aparece << Ana de la carrera >> y te dice que no te vaya que aún es pronto. Le dices que te Vas igualmente que ya lo has decidido. Das un par de pasos, aparecen las chicas de antes y te dicen que no te vaya. Les dices lo mismo. Das un par de pasos más. Miras atrás mientras una chica te repite que no te vaya y te enseña un poco los pechos. Sigues andando y vuelves a mirar atrás. Ahora se le ves claramente los pechos. Sigues andando y obviamente vuelves a mirar atrás. Habían mas mujeres mostrando sus pechos y más voces diciendo "anonimo" no te vayaaas, "anonimoooo"
   
 
   
  
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/playa.jpg)
 
 ## 18.09.2024 Haz cola para recordar
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-Caminando por la av. papa luna veía de lejos a < R-MIR >.
+Caminando por la av. papa luna ves de lejos a < R-MIR >.
 Me había visto pero no quería saludarla hasta estar cerca.
-Ella parecía que estaba buscando algo por el suelo.
+Ella parece que estas buscando algo por el suelo.
 
-- Pues es que me tendría que haber llegado un coche pero por tamaño no lo han podido dejar - dijo
+- Pues es que te tendría que haber llegado un coche pero por tamaño no lo han podido dejar - dijo
 
-La calle estaba desierta pero todos los aparcamientos eran zona para el autobús y zona amarilla
+La calle estas desierta pero todos los aparcamientos eran zona para el autobús y zona amarilla
 
-Asumo que no podía ayudar y me fuí.
+Asumo que no podía ayudar y te fuí.
 Cuando llegué a ticana entré y era una oficina del ayuntamiento pero con alma de pescadería.
-Había que cojer tiket y estaba toda la sala llena, también las ventanillas para atender a la gente.
-La gente cojía los tikets de 4 en 4 y yo también lo hice cuando se me acabó la amabilidad y tuve la oportunidad de poner la mano para arrancar de cuajo un fajo de tickets.
+Había que cojer tiket y estas toda la sala llena, también las ventanillas para atender a la gente.
+La gente cojía los tikets de 4 en 4 y tu también lo hice cuando se te acabó la amabilidad y tuve la oportunidad de poner la mano para arrancar de cuajo un fajo de tickets.
 
-> no recuerdo esto pero fue algo así:
+> no recuerdo esto pero va algo así:
 >
 > - El dos
 >
@@ -217,50 +218,52 @@ La gente cojía los tikets de 4 en 4 y yo también lo hice cuando se me acabó l
 >
 > - El 2 y el tres
 
-Me lanzo a una ventanilla que estaba vacía y digo YO!
+Me lanzo a una ventanilla que estas vacía y digo tu!
 Menudo espectáculo pensé.
-Me fijo en quién me atendería en esa ventanilla y era la youtuber gata de Schrödinger (no me sé su nombre real).
+Me fijo en quién te atendería en esa ventanilla y era la tuutuber gata de Schrödinger (no te sé su nombre real).
 
 - ¿Qué tal?, ¿qué alegría no? de ser *medio trabajador parcial de timpo completo*
 
-> A mi me sorprendió que supiera eso de mi, pero claro, tenía la base de datos de mi vida laboral en el ordenador.
+> A ti te sorprendió que supiera eso de mi, pero claro, tiene la base de datos de ti vida laboral en el ordenador.
 
-- Eso es equivalente a un B2 de inglés - me dijo
+- Eso es equivalente a un B2 de inglés - te dijo
 
-- Sí, es una pena que no haya hecho los exámenes por que ahora tendría el título. Creo que tengo el B1. O ni eso tampoco, no lo recuerdo. - dije tímido
-Ella me hizo entender que valoraba lo práctico antes que un título.
+- Sí, es una pena que no haya hecho los exámenes por que ahora tendría el título. Creo que tienes el B1. O ni eso tampoco, no lo recuerdo. - dije tímido
+Ella te hizo entender que valoraba lo práctico antes que un título.
 
-Hablamos de la orquesta por mis datos laborales, pero ella me conocía de más cosas. De un concierto del que yo también me acordaba.
+Hablamos de la orquesta por mis datos laborales, pero ella te conocía de más cosas. De un concierto del que tu también te acordaba.
 El concierto salió en la tele y habían más grupos.
-Estaba contento por que me conociera y me recordara de ese concierto, aunque me daba un poco de pena que fuera con la orquesta y no con algún grupo guay que tuve.
-Me hubiera gustado que me dijera, sí te vi con < PD > tocando < Me-voy-a-comprar-unos-Chetoos>
+estas contento por que te conociera y te recordara de ese concierto, aunque te da un poco de pena que sea por la orquesta y no con algún grupo guay que tuve.
+Me hubiera gustado que te dijera, sí te vi con < PD > tocando < Me-voy-a-comprar-unos-Chetoos>
 
-> Le empecé a contar cosas de ese día, me salía de dentro.
+> Le empecé a contar cosas de ese día, te salía de dentro.
 
-- Pues el fragmento del concierto que salió en la tele, que fue previo al fragmento del concierto de Lèpoka, fue de la orquesta < SM >. - Dije mientras ella hacía muecas para transmitirme que ya lo sabía. Lo he visto me dijo.
-Yo seguía con un: pero podría haber sido de << Dale Pomada >>, pero por tonterías no lo fué.
+- Pues el fragmento del concierto que salió en la tele, que va previo al fragmento del concierto de Lèpoka, va de la orquesta < SM >. - Dije mientras ella hacía muecas para transmitirme que ya lo sabía. Lo he visto te dijo.
+tu seguía con un: pero podría haber sido de << Dale Pomada >>, pero por tonterías no lo fué.
 
-> Aquí le cuento una história que me hace perder el hilo del sueño:
+> Aquí le cuento una história que te hace perder el hilo del sueño:
 
-En ese momento todo mi alrededor cambió. Me encontraba reviviendo el recuerdo de un día con << areyenS >>, donde visitábamos el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" ...
+En ese momento todo ti alrededor cambió. te encontraba reviviendo el recuerdo de un día con << areyenS >>, donde visitábamos el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" ...
 
 > Ese recuerdo en la vida real nunca existió, pero en el sueño lo vivo como un recuerdo
 
-... era que yo tenía un movil en la mano y le estaba contando a la gata de S en una llamada la historia mientras la revivía.
+... era que tu tiene un movil en la mano y le estas contando a la gata de S en una llamada la historia mientras la revivía.
 
-El lugar era un poco chungo. A las afueras de una nave medio derruida, con descampado por los alrededores y desniveles con arena y cables y vigas tirados de cualquier manera. Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, canela de la arena, gris azulado por los postes de electricidad ...
-Yo por teléfono ya había dicho que al final no tocamos por que a << Zapatero >> no le pareció buena idea.
-Que podríamos haber grabado todo con video y audio y que fue una pena no habernos puesto de acuerdo.
+El lugar era un poco chungo. A las afuerass de una nave medio derruida, con descampado por los alrededores y desniveles con arena y cables y vigas tirados de cualquier manera. Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, canela de la arena, gris azulado por los postes de electricidad ...
+tu por teléfono ya había dicho que al final no tocamos por que a << Zapatero >> no le pareció buena idea.
+Que podríamos haber grabado todo con video y audio y que va una pena no habernos puesto de acuerdo.
 < areyenS > asentía con ímpetu.
 
-Mientras revivía el recuerdo, a << areyenS >> y a mi nos daba rabia porq a nosotros sí que nos hubiera gustado tocar.
+Mientras revivía el recuerdo, a << areyenS >> y a ti nos daba rabia porq a nosotros sí que nos hubiera gustado tocar.
 Ibamos caminando por el lugar en cuestión, con un pedo tremendo.
 Bajando por un desnivel, << areyenS >> dió un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
-Yo tenía que hacer lo mismo pero con la borrachera fui con sumo cuidado, a cuatro patas y despacito.
-A mitad de la distancia me caí de espaldas, pero el suelo estaba cerca y fue como caer de una hamaca encima de la suave arena.
-El resto de desnivel lo bajé como si fuera un tobogán.
+tu tiene que hacer lo mismo pero con la borrachera fui con sumo cuidado, a cuatro patas y despacito.
+A mitad de la distancia te caí de espaldas, pero el suelo estas cerca y va como caer de una hamaca encima de la suave arena.
+El resto de desnivel lo bajas como si fuera un tobogán.
 
 Mientras seguimos caminando, poco a poco Vas abriendo los ojos secos por no haber bebido suficiente agua
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/playa.jpg)
 
 
 
@@ -268,15 +271,14 @@ Mientras seguimos caminando, poco a poco Vas abriendo los ojos secos por no habe
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-cena familiar y mi padre hace algo torpe con lo que le hechamos la bronca
+cena familiar y ti padre hace algo torpe con lo que le hechamos la bronca
 
-caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueños. son dos chinos y estaban fumando. me enseñan unas hamburguesas que tenían una pinta brutal ... tremenda ... pienso que es un buen lugar para tener en cuenta y le mando una foto del sitio a << M Gal >>. En ese momento veo que me está escribiendo por instagram para contarme que ha soñado. 
+caminando por UMA encuentro un nuevo local, donde estan en la terraza los dueños. son dos chinos y estasn fumando. te enseñan unas hamburguesas que tienen una pinta brutal ... tremenda ... pienso que es un buen lugar para tener en cuenta y le mando una foto del sitio a << M Gal >>. En ese momento ves que te está escribiendo por instagram para contarme que ha soñado. 
 
 Me despierto rápido y tardo en asimilar que era un sueño
 
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
 
 ## 11/09/2024 Parte policial
 
@@ -285,7 +287,7 @@ Me despierto rápido y tardo en asimilar que era un sueño
 > iba con padre y hermano con una furgoneta de viaje. No, con el peugeot.
 > veniamos de algún sitio y ibamos a un sitio indeterminado
 
-De donde volviamos, nos mandaron un mensaje, y mi padre que conducia se puso a leerlo y dejó los mandos del volante
+De donde volviamos, nos mandaron un mensaje, y ti padre que conducia se puso a leerlo y dejó los mandos del volante
 Intenté avisar de que había un semaforo en rojo. Cojo el volante, empeciezo a esquivar coches.
 
 - ¿PADRE QUE HACES?, presta atención ¡ COJE EL VOLANTE !
@@ -293,17 +295,17 @@ Intenté avisar de que había un semaforo en rojo. Cojo el volante, empeciezo a 
 - pero si ya sabes donde está el embrage - dijo, con intención de decir hazlo tú
 
 pongo el freno de mano, empezamos a derrapar, nos chocamos ... una locura
-Yo que estaba en schock, pensaba ¿qué cojones acaba de pasar? mi padre no es así, en serio ¿qué ha pasado?
-Cabreadísimo se lo intento explicar a << Dry >>, intento hablar con mi padre, !intento hablar! pero no podía. Estaba afónico de tanto gritar.
+tu que estas en schock, pensaba ¿qué cojones acaba de pasar? ti padre no es así, en serio ¿qué ha pasado?
+Cabreadísimo se lo intento explicar a << Dry >>, intento hablar con ti padre, !intento hablar! pero no podía. estas afónico de tanto gritar.
 Drama.
 
 Pienso que igual hay que hacer un parte, llamar a la policía ... hacer algo
-Ellos me dicen vale vale
+Ellos te dicen vale vale
 
-Yo rayadísimo. Empiezo a pensar que he de decir a la policía por que si digo la verdad, al igual meto en problemas a mi padre.
+tu rayadísimo. Empiezo a pensar que he de decir a la policía por que si digo la verdad, al igual meto en problemas a ti padre.
 Pero esq algo hay que decir.
 
-Los polis no les interesaba el asunto: ay no se qué, valo esto, si ... iros y os avisamos
+Los polis no les interesaba el asunto: ay no sabes qué, valo esto, si ... iros y os avisamos
 
 - ¿Pero que pasa con nuestra furgoneta? - pregunto
 
@@ -313,11 +315,11 @@ Los polis no les interesaba el asunto: ay no se qué, valo esto, si ... iros y o
 
 - yaa ya, es que al igual no os interesa hacer un parte
 
-Padre y << Dry >> se fueron. Yo me quedé con la policía para enseñar la furgoneta, para que vieran que no había nada que investigar dentro, que eramos gente normal que había tenido un accidente. No hacía falta que investigaran dos años la furgoneta.
+Padre y << Dry >> se varon. tu te quedé con la policía para enseñar la furgoneta, para que vieran que no había nada que investigar dentro, que eramos gente normal que había tenido un accidente. No hacía falta que investigaran dos años la furgoneta.
 
-Voy a enseñarle la furgoneta por dentro y abro una puerta
+Vas a enseñarle la furgoneta por dentro y abro una puerta
 
-- aquí hay mochilas con cosas (estábamos de viaje) - digo
+- aquí hay mochilas con cosas (estáis de viaje) - digo
 
 abro otra puerta
 
@@ -327,37 +329,46 @@ abro otra puerta y hay más revistas. Esta vez revistas porno. Una portada de te
 
 - BFF esto ... bueno esto parece más raro. En todo caso no es mío.
 
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/ILU_ADRUS_b1.png)
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
 ## 07/09/2024 Molestias
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-Una noche pescando con << amigo J >>, yo le insistía que tenía que regular la presión de las ruedas del coche.
-A pesar de argumentarme que estoy equivocado, lo hace y se da cuenta de que ahora es más feliz.
+Una noche pescando con << amigo J >>, le insistes en que tiene que regular la presión de las ruedas del coche.
+A pesar de argumentartee que estás equivocado, lo hace y se da cuenta de que ahora es más feliz.
 
 
-Estaba sentado en una acera, parecía el centro de una gran ciudad. Edificios señoriales y las calles sucias y aún por peatonalizar.
-Veía gente pasar con tabaco y me apetecía uno. Aguanté o me olvidé, no se.
+Te ecuentras sentado en una acera, parece el centro de una gran ciudad.
+Edificios señoriales y las calles sucias y aún por peatonalizar.
+Ves gente pasar con tabaco y mete apetecía uno. Aguantas o te olvidas, no sabes.
 
 
-Estoy en el centro comercial Benicarló (pero diferente) con << M Gal >>
-Íbamos a una tienda y en la tienda estaba el ex de segurata.
-Ella fue a hablar con el y luego volvieron los dos, hablé con el de guay pero era incómodo.
+Estas ahora en el centro comercial de Benicarló (pero diferente) con << M Gal >>
+Vais a una tienda y ahí esta el ex como segurata.
+Ella va a hablar con él y luego vuelven los dos.
+Hablas con él de guay, siendo una situación incómoda.
 
-Fuimos a cenar, aunque lo único relacionado con una cena es que estábamos en una mesa sentados, no había comida.
-Me enseña un video donde salen marge y lisa. Marge le tapa los ojos con las manos y lisa tenía que adivinar los pensamientos de marge.
-El vídeo me lo enseñaba para transmitirme esa idea, que tenía que leerle la mente y no me iba a decir ciertas cosas.
-Después me bloqueó de la vida y me molestó.
+Vais a cenar, aunque lo único relacionado con una cena es que estáis en una mesa sentados, sin comida.
+Te enseña un video donde salen marge y lisa.
+Marge le tapa los ojos con las manos y lisa tiene que adivinar los pensamientos de marge.
+El vídeo te lo enseña para transmitirme esa idea, que tiene que leerle la mente. Que pretende no decirte ciertas cosas.
+Después te bloquea de la vida.
+Te quedas molesto.
 
 
-Más tarde estaba solo apoyado en un edificio de noche. Mirando el cielo veo dos luces en movimiento que van en la misma dirección.
-Crucé la mirada con una pareja de adultos que estábamos expectantes para ver que pasaba.
-Resulta que era un juego de luces de un comercial de una marca de deportes. Habían tapado la luna un rato para tener más impacto.
-Cuando se fueron las luces se vio la luna. Aunque no me fijé en la luna hasta que paso todo esto, me molestó el comercial.
+Más tarde estas solo apoyado en un edificio de noche.
+Mirando el cielo ves dos luces en movimiento que van en la misma dirección.
+Cruzas la mirada con una pareja de adultos que también están expectantes para ver que pasa.
 
+Resulta que este suceso, es un juego de luces de un comercial de una marca de deportes.
+Habían tapado la luna un rato para tener más impacto.
+Cuando se fuerno las luces se vio la luna.
+Aunque no te fijé en la luna hasta que paso todo esto, te molestó el comercial.
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
 
 
 
@@ -365,79 +376,82 @@ Cuando se fueron las luces se vio la luna. Aunque no me fijé en la luna hasta q
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-Estaba con << amigo J >> pegandonos en broma cuando de repente estaba en el coche por la eotonda de la raya del terme, pierdo el control del coche (creo) y tengo un accidente multiple.
+Estás con << amigo J >> pegandoos en broma cuando de repente, conduciendo en el coche por la rotonda de la raya del terme, pierdes el control del coche (creo) y tienes un accidente multiple.
 
-Al coche intento salir de la rotonda pero estaba aturdido y di varios trompos
+A pesar del impacto intentas salir conduciendo de la rotonda.
+Pero estás aturdido y das varios trompos
 
 Ambulancias, un muerto, dos muy graves …
-Voy al hospital, yo estoy bien, y la familia de los graves está destrozada. Nos dan un sermón a mi y a cristeacher (?) y lloramos a moco tendido. A mi me cabreaba que sonara la canción de Titanic mientras estabamos alli, y alguien me dice: qué, te has hecho la pelicula
+Vas al hospital, tu Estás bien, y la familia de las dos personas en estado grave está destrozada.
+Os dan un sermón a ti y a cristeacher (?) y llorais a moco tendido.
+A ti te cabreaba que sonara la canción de Titanic mientras estais alli.
+Alguien te dice: qué, muchacho, te están haciendo la pelicula
 
-(En plan mental, como si me quisiera decir que no me lo tome el accidente tan a pecho xd)
+> (En plan mental, como si te quisiera decir que no te lo tome el accidente tan a pecho xd)
 
-Al salir vuelvo andando hasta benicarlo. Hay un paso de cebra en Neptuno y se esta liando porq los coches no paran.
+Al salir vuelves andando hasta benicarlo. Hay un paso de cebra en Neptuno y se esta liando porq los coches no paran.
 
-Voy a cruzar y a pararme en medio para que la gente pueda pasar.
-Había un señor mayor y así le podría ayudar a cruzar.
-Sin embargo hay otro peaton que está asociado con un coche para hacer de matón e increpar al resto de personas que bloqueen al mafioso que iba en el coche.
-El peaton señor mayor lo sabe y vacila al matón … la conversacion bulla chascarrillos entre estos dos sujetos continua miemtras caminamos.
+Vas a cruzar, para pararte en medio y que la gente pueda pasar.
+Hay un señor mayor, así que le puedes ayudar a cruzar.
+Sin embargo ... hay otro peatón que está asociado con un coche para hacer de matón e increpar al resto de personas que osen bloquear al mafioso que iba en el coche.
+El peaton señor mayor lo sabe y vacila al matón … la conversacion-bulla de chascarrillos entre estos dos sujetos continua miemtras camináis juntos.
 El increpador hace de maton … (es << huracán MP >>) y es bastante original dialécticamente
 
-> Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no se explica con las palabras de la conversación.
+> Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no sabes explica con las palabras de la conversación.
 > Habian muchas insinuaciones y lenguaje no verbal
 
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea32_edit.png)
 
 ## Un problema que se resuelve solo 
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-En un difuso inicio, estaba cachondo y de camino a mi pueblo.
-Estaba llegando a la estacion de castellon para coger en tren de noche.
-Una variacion de estación irreal, fantasiosa y antigua. Me gustaba.
+En un difuso inicio, estas cachondo y de camino a ti pueblo.
+estas llegando a la estacion de castellon para coger en tren de noche.
+Una variacion de estación irreal, fantasiosa y antigua. te gustaba.
 
 No sabía a que hora llegaba el tren, pensé en salir a una mesa a estudiar.
-Pronto me di cuenta de que tendria poco tiempo y que era mejor dirigirse a las vias del tren.
+Pronto te di cuenta de que tendria poco tiempo y que era mejor dirigirse a las vias del tren.
 
-> [!Como es recurrente en los sueños, siempre, o casi siempre,que cojo un telf movil me atoro y no consigo hacer nada. Esta vez era con la compra del billete de tren por la app (en taquilla era tarde para comprar).]
+> [!Como es recurrente en los sueños, siempre, o casi siempre,que cojo un telf movil te atoro y no consigo hacer nada. Esta vez era con la compra del billete de tren por la app (en taquilla era tarde para comprar).]
 
-Quedaban cinco mins para que llegara y no me aclaraba con la nueva actualización.
-Me ayudaban los de renfe/seguridad que estaban cerca del torno y así logré comprar el billete.
-Fue otro suplicio encontrar el billete en la cartera virtual para validarlo.
-Veo que el tren llega y yo consigo pasar por el torno.
+Quedaban cinco mins para que llegara y no te aclaraba con la nueva actualización.
+Me ayudaban los de renfe/seguridad que estasn cerca del torno y así logré comprar el billete.
+va otro suplicio encontrar el billete en la cartera virtual para validarlo.
+ves que el tren llega y tu consigo pasar por el torno.
 
-Por algun motivo antes de entrar al tren, me imagino que hay otros tornos cuando realmente no los hay.
+Por algun motivo antes de entrar al tren, te imagino que hay otros tornos cuando realmente no los hay.
 Intento buscar el billete otra vez en la cartera virtual en la app de renfe, esta vez solo, pero es imposible.
-Intento pedir ayuda, no me hacen caso, intento ver la app renfe, carrera hacia los de renfe, siempre algun impedimento, vuelta a la app … 
-Definitivamente se va el tren y es en ese instante cuando me doy cuenta de que no habia q validar otra vez el billete.
+Intento pedir ayuda, no te hacen caso, intento ver la app renfe, carrera hacia los de renfe, siempre algun impedimento, vuelta a la app … 
+Definitivamente se va el tren y es en ese instante cuando te doy cuenta de que no habia q validar otra vez el billete.
 La fustracion es máxima 
 
-Salgo de la estacion, cabizbajo, y me junto con varios amigos de primaria.
+Salgo de la estacion, cabizbajo, y te junto con varios amigos de primaria.
 Comento lo que ha sucedido y al terminar de contar la historia, amanece de forma fugaz.
-Desde ese instante, para mi sorpresa, me doy cuenta de que ya estaba en Benicarló desde que salí de la estación.
+Desde ese instante, para ti sorpresa, te doy cuenta de que ya estas en Benicarló desde que salí de la estación.
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea32_edit.png)
 
 
 
-
-![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/mar.png)
 
 ## 27/08/2024 Terror acolchado
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-Iba con mis padres por san gregori y me cruzaba con << ex M >>. Estaba un poco cambiada y daba miedo. Parecían una bruja.
+Iba con mis padres por san gregori y te cruzaba con << ex M >>. estas un poco cambiada y daba miedo. parecen una bruja.
 Por algun motivo mis pdres de pararon en la misma calle, en un puestito que habian preparado para vender ellos.
 
 Me doy cuenta de que hay una chica que se esta acercando. No es << ex M >>, es mas alta y mas arreglada,.
-Se que es una trampa e intento escaparme de ella, pero cerca de mis padres, no quiero dejarlos solos. Ella me atrapa, me exige que vaya con ella. Yo no quiero. De repente crea una escena donde un coche la atropella, bastante irreal, pero la consigue, y yo dentro del coche. Todo teatro pero verosímil.
+Se que es una trampa e intento escaparme de ella, pero cerca de mis padres, no quiero dejarlos solos. Ella te atrapa, te exige que vaya con ella. tu no quiero. De repente crea una escena donde un coche la atropella, bastante irreal, pero la consigue, y tu dentro del coche. Todo teatro pero verosímil.
 
-Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sangre falsa, y yo ‘culpable’, me exige que me vaya con ella o sufriré. Mis padres viendo la escena, con miedo, yo les digo que no miren, que debería haber puesto otra peli. Mi madre repite, como siempre que hay una pelicula gore/terror: ayyy cambialaa
+Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sangre falsa, y tu ‘culpable’, te exige que te vaya con ella o sufriré. Mis padres viendo la escena, con miedo, tu les digo que no miren, que debería haber puesto otra peli. ti madre repite, como siempre que hay una pelicula gore/terror: ayyy cambialaa
+
+![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/mar.png)
 
 
 
-
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/1DD.jpg)
 
 ## 28/03/2021 Boxeo, sexo y un loop
 
@@ -448,24 +462,24 @@ Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sa
 
 ### Escenario del ring
 
-> buscando restos arqueológicos, no se si eran mios ... pero no dio frutos
+> buscando restos arqueológicos, no sabes si eran mios ... pero no dio frutos
 
-> Cobro de la orquesta y de repente estoy ...
-> (me estoy acordando de cosas. vales si)
-> ... estoy en un ring que voy a pelearme con alguien, es la primera vez que me peleo y pensaba que iba a perder.
-> No estaba nervioso
+> Cobro de la orquesta y de repente Estas ...
+> (me Estas acordando de cosas. vales si)
+> ... Estas en un ring que Vas a pelearme con alguien, es la primera vez que te peleo y pensaba que iba a perder.
+> No estas nervioso
 
 Tenia rabia, ganas de luchar, sensación de pelea.
 Son dos asaltos
-En el primero no estaba luchado yo, estaba luchando otro, mi "compañero de pelea", que lo hace bien.
-Lo está haciendo muy bien, hasta que el otro le machaca lanzandole contra una columna de fuera del escenario.
-No me sorprende pero me decepciona esa situación
+En el primero no estas luchado tu, estas luchando otro, ti "compañero de pelea", que lo hace bien.
+Lo está haciendo muy bien, hasta que el otro le machaca lanzandole contra una columna de las afueras del escenario.
+No te sorprende pero te decepciona esa situación
 
-comienza el segundo asalto, yo soy el que pelea. Va bien
+comienza el segundo asalto, tu soy el que pelea. Va bien
 
-en el descanso me doy cuenta de que tengo cosas en los bolsillos, pasta de la orquesta, movil llaves ...
+en el descanso te doy cuenta de que tienes cosas en los bolsillos, pasta de la orquesta, movil llaves ...
 
-lo utilizo de escusa para hablar/ligar con una chica del público, veo que el jefe de la orquesta está en el público y cojo las cosas menos el dinero y se lo dejo a la chica
+lo utilizo de escusa para hablar/ligar con una chica del público, ves que el jefe de la orquesta está en el público y cojo las cosas menos el dinero y se lo dejo a la chica
 
 Empieza el combate y lo gano.
 Mi primer combate profesional.
@@ -474,103 +488,106 @@ Todo guay
 
 ### Escenario del jacuzzy
 
-estoy en un jacuzzy con una amiga con la que tengo sexo y también conversación.
-Esta un poco rellena, tiene dos pechos grandes y caídos (incido en que eran dos porq al ser un sueño nunca se sabe)
+Estás en un jacuzzy con una amiga con la que tienes sexo y también conversación.
+Está un poco rellena, tiene dos pechos grandes y caídos
+
+> incido en que eran dos porq al ser un sueño nunca se sabe
 
 el escenario cambia continuamente y el jacuzzy, que ahora es una piscina de piedra en mitad de una plaza pública con comercios.
-Esta´n ahora también amigos por ahí cerca, a mi amiga le empiezo a contar que es muy dificil ser freddie mercury porq la gente no te entiende y 
+Esta´n ahora también amigos por ahí cerca, a tu amiga le empiezas a contar que es muy dificil ser freddie mercury porq la gente no te entiende y 
 
-> Pero en el sueño, a medida que follaba, me cambió el cuerpo y era FM, y mientras tenía sexo con la chica se intercalaban  momentos de tercera persona donde yo me abstraía de ese cuerpo y observaba desde fuera
-> En algún momento pienso que esta escena es una demostración de que freddie mercury follaba.
+> Pero en el sueño, a medida que folláis, te cambia el cuerpo y era FM, y mientras tiene sexo con la chica se intercalaban  momentos de tercera persona donde tu te abstraía de ese cuerpo y observaba desde fuera.
+> En algún momento piensas que esta escena es una demostración de que freddie mercury tenía sexo heterosexual.
 
-a los amigos los veia en una plaza como se divertian, llena de cesped en mitad de londres.
-estaban haciendo un karaoke improvisado
+a los amigos los ves en una plaza como se divierten, llena de cesped en mitad de londres.
+estasn haciendo un karaoke improvisado
 
-por dentro pensaba que la gente no valoraba a una persona que se va a convertir en famosa.
+por dentro piensas que la gente no valoraba a una persona que se va a convertir en famosa.
 Que sin la fama puedes ser infravalorado
 
-despues de ese pensamiento me acuerdo de que aún tengo el dinero en los bolsillos.
-los presentes en la plaza con el karaoke nos animamos a dar una paseo por el centro de londres.
-Algunos se quedan atras, y veo que deivid no
+despues de ese pensamiento te acuerdas de que aún tienes el dinero en los bolsillos.
+los presentes en la plaza con el karaoke os animais a dar una paseo por el centro de londres.
+Algunos se quedan atras, y ves que deivid no
 
-es londres ... lugar por descubrir ... pero tenia confianza por haber ganado en el boxeo. No me iba a pasar nada malo
+es londres ... lugar por descubrir ... pero tienes confianza por haber ganado en el boxeo. No te va a pasar nada malo
 
-con los 200 euros me voy a buscar un lugar para comprar zapatillas, porq porfin tengo dinero y me hacían falta
+con los 200 euros te Vas a buscar un lugar para comprar zapatillas, porq porfin tienes dinero y te hacen falta
 
-Empiezo a ver tiendas y las zapas son caras.
-Dudo de si lo que realmente quiero es eso
+Empiezas a ver tiendas y las zapas son caras.
+Dudas de si lo que realmente quiero es eso
 
-> (voy recordando más cosas)
+> (Vas recordando más cosas)
 
-Paso de las zapatillas finalmente y vuelvo a la piscina con otra gente.
-Había una pareja que me recuerda el coito anterior.
-Eso hace que aparezca la chica sexy y volvamos a darnos placer
+Pasas de las zapatillas finalmente y vuelves a la piscina con otra gente.
+Hay una pareja que te recuerda el coito anterior.
+Eso hace que aparezca la chica sexy y volváis a daros placer
 
-> esta vez fue normal, fui completamente yo
+> esta vez va normal, eres completamente tú
 
 
 ### Escenario de un recinto pueblerino
 
-> ANTES o después ... no se (que no será este un sueño de otro dia? xd), soñé con un videojuego chino, o una situación que se va repitiendo
+> ANTES o después ... no sabes (que no sabesrá este un sueño de otro dia? xd), soñé con un videojuego chino, o una situación que se va repitiendo
 > Era como si unos cuantos amigos quedaran para pasar una tarde noche, pero no de fiesta
 
-encuentran un lugar abandonado, y dentro de ese lugar hay un circuito (un tobogán chuingo del que me tiré) al final del tunel había un bar karaoke con piscinas de bolas, medio destrozado y que solo servían cerveza
+encuentran un lugar abandonado, y dentro de ese lugar hay un circuito (un tobogán chuingo del que te tiré) al final del tunel había un bar karaoke con piscinas de bolas, medio destrozado y que solo servían cerveza
 
 
 > Este fragmento de sueño se repite en formato de videojuego retro, y despúes vivo la simulación, que es "diferente"
-> En la simulación, cuando bajo por el tunel, había chinos por ahí que habían luchado contra el coronavirus y estaban allí para ayudarnos y hacer lo que sea necesario
+> En la simulación, cuando bajo por el tunel, había chinos por ahí que habían luchado contra el coronavirus y estasn allí para ayudarnos y hacer lo que sea necesario
 
 me hago amigo de un chino y empieza a hacer cosas guays
 
 depués volvemos a una antigua casa
 
- la parte de la casa, teniamos que darle la vuelta al coche, pero el coche eran cuatro sillas en forma de cuadrado. Mi padre quería que le diera la vuelta pero yo no entendía que me pedía exactamente, por que no había coche,
+ la parte de la casa, teniamos que darle la vuelta al coche, pero el coche eran cuatro sillas en forma de cuadrado. ti padre quería que le diera la vuelta pero tu no entendía que te pedía exactamente, por que no había coche,
 
 Me pongo a jugar al mario kart para desbloquear cre´ditos, que utilizaré para debloquear partes del coche, pienso en las ruedas para ponerselas a la silla, chasis, eje ... cualquier cosa.
 
 Me pongo a jugar para desboquearlo y no logro desbloquear nada
 
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/1DD.jpg)
 
 
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3862.png)
 
 ## Una partida confusa
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-> En este sueño tengo la sensación de que se repite. Pero puede que simplemente, mientras se desarrollan los sucesos, voy pensando en otras cosas posibles, como en una partida de ajedrez
+> En este sueño tienes la sensación de que se repite. Pero puede que simplemente, mientras se desarrollan los sucesos, Vas pensando en otras cosas posibles, como en una partida de ajedrez
 
 Empiezo con una partida de ajedrez que pierdo.
 
 Pienso en la partida con cambios (para ganarla)
 
-> En ningún momento creo concreta y mentalmente una partida de ajedrez en el sueño (ojalá). Sólo sé que estoy jugando una partida, que la pierdo y que pienso en cambios. Había vevces que la partida de ajedrez era obvia y otras que no (bueno es igual)
+> En ningún momento creo concreta y mentalmente una partida de ajedrez en el sueño (ojalá). Sólo sé que Estas jugando una partida, que la pierdo y que pienso en cambios. Había vevces que la partida de ajedrez era obvia y otras que no (bueno es igual)
 
-Dentro de la casa del Marqués de Benicarló, que no se parecia en nada a la original, hacemos preparativos para grabar música y videoclip
+Dentro de la casa del Marqués de Benicarló, que no sabes parecia en nada a la original, hacemos preparativos para grabar música y videoclip
 No tocamos música sino que estamos jugando al ajedrez.
 Pasan situaciónes comúnes de grabación ¿?
 
-La gente se va y me encuentro con mi familia, siguiendo trabajando en una partida de ajedrez, aunque ahora la partida no es evidente.
-La partida es en la vida real. Pienso en moverme detrás de un arbol, o estar en una perspectiva diferente desde donde me ve la gente.
-Estoy escapando y para ello atravieso paredes y escalo
+La gente se va y te encuentro con ti familia, siguiendo trabajando en una partida de ajedrez, aunque ahora la partida no es evidente.
+La partida es en la vida real. Pienso en moverme detrás de un arbol, o estar en una perspectiva diferente desde donde te ve la gente.
+Estas escapando y para ello atravieso paredes y escalo
 
 Termino en al calle ...
 
 > ¿eso es que he ganado? no recuerdo
 
-... es decir salgo de la casa y la gente me busca. Es de noche y como hay toque de queda vuelvo para mi casa.
-No soy el único que lo estaba haciendo, por que hay una fiesta en una casa y vamos todos hacia allí.
+... es decir salgo de la casa y la gente te busca. Es de noche y como hay toque de queda vuelves para ti casa.
+No soy el único que lo estas haciendo, por que hay una fiesta en una casa y vamos todos hacia allí.
 De camino, de alguna forma empiezo a hablar con << C de vista >>
 Le doy una personalidad (me he inventado a una persona) mientras hablo con ella en la fiesta.
-Dormimos en un sofa abrazados. Me despierto a la mañana siguiente y ella se va antes que yo.
+Dormimos en un sofa abrazados. te despierto a la mañana siguiente y ella se va antes que tu.
 
-Al salir me encuentro con un amigo que me cuenta sus movidas (y pasan cosas (¿?))
-mientras vamos de camino a mi antigua casa
+Al salir te encuentro con un amigo que te cuenta sus movidas (y pasan cosas (¿?))
+mientras vamos de camino a ti antigua casa
 
 Al llegar, soy un niño pequeño. Y mis amigos tambien son crios.
-Maquinamos un plan para escapar de ahí tipo aventura de niños, y me quedo conS la sensación de que repetimos cosas (o no, es confuso)
+Maquinamos un plan para escapar de ahí tipo aventura de niños, y te quedo conS la sensación de que repetimos cosas (o no, es confuso)
 
 joder, este sueño es complicado
 
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3862.png)
