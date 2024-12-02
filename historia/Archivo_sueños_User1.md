@@ -26,7 +26,7 @@ Mmmmm no te van los links :(
 
 ## 2/12/2024 Laberinto
 
-> Estás en la tierra y debajo se está creando un dominó laberinto. Para ello se debe alimentar a una babosa gigante.
+> Estás en algún lugar del plante Tierra. En el subsuelo se está creando un dominó/laberinto. Para ello, se debe alimentar a una babosa gigante.
 
 Te encuentras en el pueblo la Aldea, que es una sección de una ciudad enorme.
 Observas una plaza y no te sitúas.
@@ -408,7 +408,7 @@ Estás con << amigo J >> pegandoos en broma cuando de repente, conduciendo en el
 A pesar del impacto intentas salir conduciendo de la rotonda.
 Pero estás aturdido y das varios trompos
 
-Ambulancias, un muerto, dos muy graves …
+Ambulancias, un muerto, dos muy graves ...
 Vas al hospital, tu Estás bien, y la familia de las dos personas en estado grave está destrozada.
 Os dan un sermón a ti y a cristeacher (?) y llorais a moco tendido.
 A ti te cabreaba que sonara la canción de Titanic mientras estais alli.
@@ -421,8 +421,8 @@ Al salir vuelves andando hasta benicarlo. Hay un paso de cebra en Neptuno y se e
 Vas a cruzar, para pararte en medio y que la gente pueda pasar.
 Hay un señor mayor, así que le puedes ayudar a cruzar.
 Sin embargo ... hay otro peatón que está asociado con un coche para hacer de matón e increpar al resto de personas que osen bloquear al mafioso que iba en el coche.
-El peaton señor mayor lo sabe y vacila al matón … la conversacion-bulla de chascarrillos entre estos dos sujetos continua miemtras camináis juntos.
-El increpador hace de maton … (es << huracán MP >>) y es bastante original dialécticamente
+El peaton señor mayor lo sabe y vacila al matón ... la conversacion-bulla de chascarrillos entre estos dos sujetos continua miemtras camináis juntos.
+El increpador hace de maton ... (es << huracán MP >>) y es bastante original dialécticamente
 
 > Hay muchos detalles de esa conversación que se perderan en el olvido, por que son las 5:00 am  y mucha info no sabes explica con las palabras de la conversación.
 > Habian muchas insinuaciones y lenguaje no verbal
@@ -434,29 +434,37 @@ El increpador hace de maton … (es << huracán MP >>) y es bastante original di
 
 - [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
-En un difuso inicio, estas cachondo y de camino a ti pueblo.
-estas llegando a la estacion de castellon para coger en tren de noche.
-Una variacion de estación irreal, fantasiosa y antigua. te gustaba.
+En un difuso inicio, estáss cachondo y de camino a tu pueblo.
+Llegas a la estacion de castellon para coger l tren de noche.
+Es una variacion de estación irreal, fantasiosa y antigua. te gustaba.
 
-No sabía a que hora llegaba el tren, pensé en salir a una mesa a estudiar.
-Pronto te di cuenta de que tendria poco tiempo y que era mejor dirigirse a las vias del tren.
+No sabes a que hora llegaba el tren, piensas en salir a una mesa a estudiar.
+Pronto te das cuenta de que tendras poco tiempo.
+Que es mejor dirigirse a las vias del tren.
 
-> [!Como es recurrente en los sueños, siempre, o casi siempre,que cojo un telf movil te atoro y no consigo hacer nada. Esta vez era con la compra del billete de tren por la app (en taquilla era tarde para comprar).]
+> [!Como es recurrente en los sueños, siempre, o casi siempre, que cojo un telf movil te atoro y no consigo hacer nada. Esta vez era con la compra del billete de tren por la app (en taquilla era tarde para comprar).]
 
-Quedaban cinco mins para que llegara y no te aclaraba con la nueva actualización.
-Me ayudaban los de renfe/seguridad que estasn cerca del torno y así logré comprar el billete.
-va otro suplicio encontrar el billete en la cartera virtual para validarlo.
-ves que el tren llega y tu consigo pasar por el torno.
+Quedaban cinco mins para que llegara y no te aclaras con la nueva actualización.
+Te ayudan los de renfe/seguridad que estan cerca del torno y así logras comprar el billete.
+Es otro suplicio encontrar el billete en la cartera virtual para validarlo
+Ves que el tren llega y consigues pasar por el torno.
 
-Por algun motivo antes de entrar al tren, te imagino que hay otros tornos cuando realmente no los hay.
-Intento buscar el billete otra vez en la cartera virtual en la app de renfe, esta vez solo, pero es imposible.
-Intento pedir ayuda, no te hacen caso, intento ver la app renfe, carrera hacia los de renfe, siempre algun impedimento, vuelta a la app … 
-Definitivamente se va el tren y es en ese instante cuando te doy cuenta de que no habia q validar otra vez el billete.
+Por algun motivo antes de entrar al tren, te imaginas que hay otros tornos cuando realmente no los hay.
+Intentas buscar el billete otra vez en la cartera virtual en la app de renfe.
+Esta vez solo y es imposible.
+Intentas pedir ayuda.
+No te hacen caso.
+Intentas ver la app, carrera hacia los de renfe.
+Siempre algun impedimento, vuelta a la app ... 
+
+Definitivamente se va el tren y es en ese instante cuando te das cuenta de que no había q validar otra vez el billete.
 La fustracion es máxima 
 
-Salgo de la estacion, cabizbajo, y te junto con varios amigos de primaria.
-Comento lo que ha sucedido y al terminar de contar la historia, amanece de forma fugaz.
-Desde ese instante, para ti sorpresa, te doy cuenta de que ya estas en Benicarló desde que salí de la estación.
+Sales de la cabizbajo de la estacion.
+Casualmente te juntas con varios amigos de primaria.
+Comentas lo que ha sucedido y al terminar de contar la historia, amanece de forma fugaz.
+Desde ese instante, para tu sorpresa, ves a tu alrededor y sientes alivio.
+Te das cuenta de que ya estas en Benicarló.
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea32_edit.png)
 
