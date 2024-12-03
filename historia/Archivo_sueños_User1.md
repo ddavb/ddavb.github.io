@@ -83,7 +83,7 @@ Consigió superarlo gracias a un collar de maíz, por el cual escribió este tex
 > Alimenta al humano cuando procede
 
 
-![conjunto mejor](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_5168.jpeg)
+![conjunto mejor](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_5168.png)
 
 
 ## 10/11/2024 Angustia
@@ -104,7 +104,7 @@ Tu vas diciendo Uh uh uuuh mientras te lleva en carril contrario por la avenida 
 
 El te va hablando de la vida
 
--- Veus ahí? Sempre se veu l´hermita de Sant Antoni
+-- Veus ahí? Sempre se veu l`hermita de Sant Antoni
 
 Tu cada vez mas acojonado, ves a tus padres de cara
 
