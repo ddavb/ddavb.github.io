@@ -2,7 +2,7 @@
 
 Mmmmm no te van los links :(
 
-   - [Laberinto](#-02122024-Laberinto)
+   - [Laberinto](#2122024-laberinto)
 
    - [Angustia](#-10112014-Angustia)
 
@@ -32,7 +32,7 @@ Mmmmm no te van los links :(
 
 ## 2/12/2024 Laberinto
 
-[[ÍNDICE]](#-SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#sueños-por-editar)
 
 
 > Estás en algún lugar del plante Tierra. En el subsuelo se está creando un dominó/laberinto. Para ello, se debe alimentar a una babosa gigante.
