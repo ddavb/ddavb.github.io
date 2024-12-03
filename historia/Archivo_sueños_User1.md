@@ -3,7 +3,7 @@
 
    - [Laberinto](#2122024-laberinto)
    - [Angustia](#10112024-no-te-rindas)
-   - [...](#7112024-)
+   - [...](#7112024-espejo)
    - [...](#5112024-)
    - [Peñismar](#22102024-peñismal)
    - [Intermedio del iaio](#10102024-sueño-breve-iaio)
@@ -94,17 +94,254 @@ Es una carta en prosa escrita por una persona normal que consigió salir del lab
 
 [[ÍNDICE]](#sueños-por-editar)
 
-## 7/11/2024 ...
+No recuerdas cómo, pero estás en la cola para entrar en el exámen (el más importante de tu vida, que llevas esperando casi un año)
+
+Te das cuenta de que no has imprimido la hoja acreditativa de la inscripción.
+Hoja necesaria para poder realizar el exámen.
+
+Te pones a buscarlo por el movil.
+Entras en la web de la UJI.
+Ahí está la hoja.
+Te atoras con el móvil.
+No hay manera de hacer lo que tienes en mente.
+La cola cada vez va mas rápido.
+Tu turno, entras dentro.
+
+- Caballero la hoja - dice la mujer que para tí, en ese momento, tiene el poder sobre lo que más puedes codiciar
+
+- Pues escucha es que no la tengo impresa, pero puedes verla aquí en el móvil. Existir existe pero no la tengo impresa. Buscamos en la página web que seguro que están mis datos, nos...
+
+- Noo. Pero esto. Ya sabes que tienes que tener el papel. Además dejame ver - mira la pantalla del móvil - si esto ni siquiera te sirve. Pone el nombre de tu madre.
+
+- ¿Como? - dices mientras te repites a ti mismo que necesitas pensar rápido - Bueno vale, ¿me puedo esperar al final de la cola para ver si me da tiempo a imprimirlo?
+
+Piensas que tienes que buscar una forma de descargarlo al móvil. Que como haces luego para pasarlo a un USB y luego busca un lugar con impresora que te sirva para ...
+Mira, ese es el último paso y de hecho me da igual.
+Primero lo descargas y luego ya veremos.
+
+Sales de la cola, te sientas en una terraza interior.
+Ves a Jnny y le pides que te ayude.
+
+Estás delante de un portatil cuyas teclas tienen las letras cambiadas de sitio y algunas por figuras.
+Escribes, pero no ves en la pantalla lo que intentas escribir. Te esfuerzas. Cada vez más. Y más ...
+Te esfuerzas tanto que sales del sueño. Alivio ...
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/apuntes.png)
+
+
+## 7/11/2024 Espejo
 
 [[ÍNDICE]](#sueños-por-editar)
+
+
+Estás en el puerto de fiesta con <BHT>.
+Como lo de <M> no fue bien, te dice:
+
+- Hay rumores de que no te va bien el cacharro
+
+- No tío - dices
+
+- Sí sí ...
+
+- Que no tío
+
+Te ofuscas
+
+- La próxima vez que se me levante te la enseño
+
+- aah no jaja
+
+Te vas caminando por la mar xica.
+Estás comiendo patatas fritas.
+En algún momento de ese viajes pierdes los recuerdos de que ha pasado.
+
+<AreyenS> viene a cenar a casa pero de camino te encuentras con <B> y hablas.
+Habláis mucho y luego tenéis mucho de sexo en muchas posturas.
+
+Estáis yendo al supermercado a por comida. Peo acabas comprando zumo de naranja, lambrusco y algo más.
+
+En la cola hay mucha gente.
+Te indican donde ir pero un tipo se cabrea, te dice de cambiar de sitios. Tú le espetas
+
+- Eh, no os mováis. Que se quede tal como está, menos lio.
+
+Hablas mucho con <B>.
+Temas insulsos y trabajo. Sin embargo:
+
+- Por fin estoy viendo la sociedad desde arriba. Una imagen sociológica completa de la sociedad.
+
+- Ay que guay. Te entiendo, algo sé por mis estudios
+
+Te habla del centro comercial de vinaros que han hecho un paso de zebra grande que atraviesa la carretera y más sitios.
+
+Se transforma el entorno en una universidad mientras seguís hablando.
+Una uni que ya habías soñado hace tiempo, en un sueño angustioso con las oposiciones, o eso crees.
+De todas formas tienes un sueño viviendo un recuerdo de sueño, aunque pueda ser ficticio.
+
+Por fin, piensas en <P>.
+¿Habrá cenado finalmente sólo con tus padres?
+
+
+
 
 ## 5/11/2024 ...
 
 [[ÍNDICE]](#sueños-por-editar)
 
+Estás en la playa con bastante gente.
+Jairo, <J>, <Jonjo> y mas
+
+A Jairo le han dicho de tocar con kase.O por que una vez hizo un vide ode coña que rimaba con jazz magnetism y le propusieron ese proyecto.
+
+Te cabrea. Piensas en todo en tiempo que te has esforzado y que agluien se lleve un premio por tener suerte, por garrulo.
+
+Pasa algo más en la playa ... Os estáis comportando como crios.
+<Jonjo> está meando a la gente. Lo ves y te toca a tí.
+Comienzas a tirar arena para que se seque el líquido, al menos minimizas daños.
+Pero no para y seguís asi ...
+
+Se cae en la arena y piensas QUE PUTO ASCO.
+A el se le acaba el pis y me meto al agua.
+Le dices a <J> que asco lo que acaba ocurrir.
+Se ha solidificado con la arena.
+
+Te limpias bien ...
+
+Lueg ode eso tienes un recuerdo de 
+
+Vas por (bostezo) una calle donde juegan a futbol y te tumbas ahí.
+Estan haciendo un rombo y la pelota se les escapa y va en tu dirección.
+Varias veces. Tú, con buenos reflejos, la esquivas o le das un golpe.
+
+Te haces amigo de ellos. Te ganas el respeto.
+
+Les das la mano. Uno de ellos tenía sólo medio brazo
+
+- Yee que pase? - te dice mientras hace como que te da la mano
+
+Tu le chocas el muñón igualmente.
+
+Tenía como medio antebrazo, un poco menos.
+
+Te pones a hablar de hombros.
+
+- Mi hermano tiene un hombro que es así - dices
+
+- Bua pues el mio es así
+
+Nos metemos por algún sitio
+Por algo saubterráneo. Habláis.
+
+- Yo soy de santa eurlália - te dice
+
+- Buaa la ronda de la torrasa. Tengo allí un colegaa
+
+Total, acabáis en la ronda de la torrassa. Vais al lcal de Pau, pero era un local/bajo comercial
+
+De repente llega el ministro de turismo de dinamarca.
+
+Como ese local está muy hecho polvo no viene a traer cosas.
+
+Pantallas, material ...
+
+Se justifica. Si es que el miniserio de dinamarca es corrupto. Nadie se va a dar cuenta.
+
+Dieramos que lo pasaremos por estas partidas no se que ...
+
+Para terminar. Se ve que ese local conectaba con una especie de museo, zona de ocio, comercial, zoo, jardín
+Sala to grande que conectaba con otras cosas.
+Estaba lleno de turistas.
+Recuerdas muchos asiaticos.
+Teníais que hacer el paripé para evitar que os pillen por le mateiral de dinamarca
+Finjís que soys turistas y os libráis.
+Acabais en el local comercial. Todo bien
+
+
 ## 22/10/2024 Peñismal
 
 [[ÍNDICE]](#sueños-por-editar)
+
+
+<aP> destroza tu habitación, o proboca que otro destrozen tu habitación para estafar al seguro.
+Vas al Hotel Plaza con <aB> a una discoteca.
+Aparcas el coche y vas a la entrada de la parte de abajo.
+
+Hay una zona oscura con muhca gente que va a la fiesta y piensas que no te conoce nadie de por ahí.
+Os dirigís todos en la misma dirección y cruzáis un tunel
+Hay dos chicas caminando cerca y alguien que las moleta.
+
+- Pues no quiero nada contigo. Si quisiera algo sería con estos dos - señalandote a tí y a <aB>.
+
+- Oh, gracias guapa!
+
+Caminando llegáis a una sala con cristalestas ... se puede continuar pero parece el final y no tiene pinta de divertido
+
+- Ye BHT, esto parece una mezcla de cárcel y gimnasio
+
+- Sí jaj
+
+
+-- --
+
+Te encuentras descansando con 6/7 personas sentadas en sofás en el hotel.
+Tienes unas esposas en las manos y juegas con ellas.
+Algunos de ellos son colegas de <hA> del master de MDR.
+<hA> pregunta a otro una adivinanza que tu ya sabías.
+
+- A ver si sabes hacer un nosequé con las esposas
+
+Tú callas y observas. Le das las esposas y se pone a hacer cosas. Hacer formas, movimientos ... y poco a poco lo va consiguiendo y hace una cosa similar al nosequé.
+Os sorprende y le dáis la enhorabuena.
+Le explicáis más sobre el nosequé
+
+- Se vé que hay trucos dentro del mundillo de las esposas. Es como en el skate. Vas haciendo trucos. Va por rondas. Quién haga más trucos y sume puntos, gana.
+
+> piensas que esta cuestión es similar al ajedrez. Que una vez que profundizas encuentras patrones característicos. Sólo que aplicado a dar formas a unas esposas (redeu)
+
+- ¿Y tú te los sabes de memoria? - te pregunta
+
+- Alguno sí por que me presenté a un torneillo pero mal. Fué la primera vez y lo hice por probar y aprender también
+
+Por ahí está ese chaval (sabes quien és, ese que te cae mal).
+Este sujeto antes iba un poco pasado de azucar, pero ahora ya no.
+
+- Sí ya ... tu debes de ser el típico tontito - te dice con pasotismo y chulería
+
+- Te voy a dar un ostiazo en la cara
+
+- Va
+
+PAM ! Lo tumbas.
+
+- Ahora se lo diré a la policía
+
+Piensas que se lo merecía. Que aceptas si hay consecuencias.
+Te subes en un coche con más gente.
+
+Tú, fuera! - dice el agente de policía.
+
+- ¿Yo? - dices
+
+- No, tú no
+
+Entran dos policías en el asiento, uno de ellos en el asiento del copiloto.
+Pensamos que va a ser un interrogatorio, pero ordena que arranquemos el coche y circulemos con ellos dentro.
+
+- Caballero - dice el agente dirigiéndose a tu padre - cuando ha pasad el suceso allí en su casa ¿(aquí debería haber una pregunta pero sólo imaginaste el concepto de pregunta)?
+
+- No no, esto que dices no ha pasado en mi casa - dice tu padre - ha habido un incidente pero aquí en el hotel plaza
+
+- Es que el chaval este ha hecho un parte un poco irreal y tenemos sospechas de que esconde algo gordo ...
+
+- El chaval este es un matao. Siempre va pasado y me ha probocado él
+
+Uno de los agentes recibe una llamada en el walkie talkie y sale una mano sin cuerpo del walkie señalando hacia el oeste, por que el agente está mirando hacia el piloto, que está al este! 
+
+Miras y hay una nube enorme con forma de castillo ... es una explosión de alguien que sabía hacer magia.
+
+Piensas: claro ... se han llevado detenido a este chaval a la comisaría y a venído su padre, que es más figura, y ha hecho magia y lo a liberado. Observas el espectáculo ... tiene su encanto
+
+
 
 ## 10/10/2024 Sueño breve iaio
 
