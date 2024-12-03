@@ -28,7 +28,7 @@
 [[ÍNDICE]](#sueños-por-editar)
 
 
-> Estás en algún lugar del plante Tierra. En el subsuelo se está creando un dominó/laberinto. Para ello, se debe alimentar a una babosa gigante.
+> Estás en algún lugar del planeta Tierra. En el subsuelo se está creando un dominó/laberinto. Para ello, se debe alimentar a una babosa gigante.
 
 Te encuentras en el pueblo la Aldea, que es una sección de una ciudad enorme.
 Observas una plaza y no te sitúas.
@@ -79,10 +79,10 @@ Antes de despertarte, descubres un objeto histórico relevante.
 Es una carta en prosa escrita por una persona no experta que consigió salir del laberinto.
 Consigió superarlo gracias a un collar de maíz, por el cual escribió este texto (no lo recuerdas bien, pero te hubiera gustado que fuera así):
 
-> Con el collar conseguí escapar
-> Cada grano lo puede indicar
-> Se siembra entre enero y septiembre
-> Alimenta al humano cuando procede
+- > Con el collar conseguí escapar
+- > Cada grano lo puede indicar
+- > Se siembra entre enero y septiembre
+- > Alimenta al humano cuando procede
 
 
 ![conjunto mejor](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_5168.png)
@@ -108,26 +108,25 @@ Consigió superarlo gracias a un collar de maíz, por el cual escribió este tex
 
 [[ÍNDICE]](#sueños-por-editar)
 
-Estáss en un coche, un sub negro.
-Conduce tu iaio de 99 años, que de repente está para conducir. En verdad no no mucho.
+Estás en un coche, un sub negro.
+Conduce tu iaio de 99 años, que de repente está para conducir. En verdad no mucho ...
 Tu vas diciendo Uh uh uuuh mientras te lleva en carril contrario por la avenida Papa Luna.
 
 -- Por ahí no iaio! - dices sin pretender bajarle la moral
 
-El te va hablando de la vida
+Él te va hablando de la vida
 
 -- Veus ahí? Sempre se veu l`hermita de Sant Antoni
 
-Tu cada vez mas acojonado, ves a tus padres de cara
+Tú estás cada vez mas acojonado y ves a tus padres que vienen de cara.
 
--- Ya está ya he conseguido que vaya por el carril que toca, no os preocupéis
+-- Ya está, ya he conseguido que vaya por el carril que toca. No os preocupéis
 
-Estás en tu habitación, tu iaio en la suya.
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/abuelo2.png)
+
+Te encuentras en tu habitación, tu iaio en la suya.
 Lo ves y piensas en cederle tu habitación por que tiene balcón.
 Quizá le venga bien para andar
-
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/abuelo2)
-
 
 
 
@@ -159,49 +158,49 @@ Ese deseo te despierta.
 Vas en una furgoneta con mas gente y os paran en un control policial/militar.
 Estáis preocupados por que debíais llevar algo ilegal.
 Mientras piensas que sería genial que pasara algo para libraros del control, explota algo a lo lejos.
-Todos los que estasn en el control se van, no sin antes intercambiar palabras con un agente
+Todos los que estan en el control se van, no sin antes intercambiar palabras con un agente
 
 > debió de ser algo así la conversación:
 
 - confiamos en el buen hacer ciudadano de que dejaréis la furgoneta aquí y no la tocaréis para el control
 
-- sí, y los huevos también - dices por tu parte
+- sí, y los huevos también - dices
 
 
 > Te largas y acabas en una especie de escaleras de metro, donde estas sentado << pújil >>.
-Cansado pero activo, te pregunta si saldras de noche y le dices que no. El es RRPP o portero de algún sitio y sin quererlo se estaá pegando una semanita de fiesta del copón.
-> Para cuando acaboó la conversación había un montón de gente sentada
+Cansado pero activo, te pregunta si saldras de noche y le dices que no. El es RRPP o portero de algún sitio y sin quererlo se está pegando una semanita de fiesta del copón.
+> Para cuando acaba la conversación hay un montón de gente sentada
 
 
-> En algún momento apareces en un bar. estass con el hermano de << areyenS >>. Está invalido
-> Te pregunta sobre las oposiciones y tu contestas. Te preguntan si estas bien.
-> Te da la sensación de que ellos piensan que estas triste por haber suspendido, pero teextrañas pq aún no has hecho exámenes recientemente.
+> En algún momento apareces en un bar. estas con el hermano de << areyenS >>. Está invalido
+> Te pregunta sobre las oposiciones y tu contestas. Te preguntan si estás bien.
+> Te extraña por q te da la sensación de que ellos piensan que estas triste por haber suspendido, pero aún no has hecho exámenes recientemente.
 
 > Esta conversación se alarga pero no te acuerdas de mas detalles.
 
 > Luego estás en , en tu habitación con << Dry >> y << amigoJ >>, jugando a la gamecube.
-> De alguna forma te quedas sólo y del resto tampoco te acuerdo
+> De alguna forma te quedas sólo y del resto tampoco me acuerdo
 
 
 ### 2nd round vacilado
 
 Estás en un recindo muy grande y lleno de gente.
-Es como una entrega de premios privada de una orquesta.
+És como una entrega de premios privada de una orquesta.
 Hay pasarelas y gente animando, música, luces ...
 
 Están a punto de llamar a los músico para darles algún premio.
-Le dicen a << Dry >> y a ti de subir a recibir premios. Tu piensas que al no haber hecho la ttemporada de verano con esa orquesta, no mereces ese reconocimiento. has hecho algún bolo pero ya te lo habías dejado. Y Mr.Dri tampoco lo merecía porq no tiene nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, ¡que se fastidien!.
+Le dicen a << Dry >> y a ti de subir a recibir premios. Tú piensas que al no haber hecho la ttemporada de verano con esa orquesta, no mereces ese reconocimiento. has hecho algún bolo pero ya te lo habías dejado. Y Mr.Dri tampoco lo merecía porq no tiene nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, ¡que se fastidien!.
 
-está petadísimo todo. en la pasarela, al principio del todo justo al subir, estas eufórico y te pones a bailar tektonic.
+está petadísimo todo. en la pasarela, al principio del todo justo al subir, estás eufórico y te pones a bailar tektonic.
 Únicamente  te ven bailar cuatro/5 personas del público y les hace gracia
 
 Váis, os dan una medalla y bajáis.
-tu piensas en el dinero que habrá constado pero ... pa ti. hablas con el jefe de la orquesta, toca irse para casa.
-un amigo se va ultra rápido.
-te asomas a la calle doctor fleming? la de balaguer.
-ves a la derecha que hay un grupito de chicas en un portal que está saludando.
-están arregladas, vestidas para salir de fiesta.
-miras a la izqauierda y hay otro grupido de chicos/chicas que les devuelven el saludo.
+tú piensas en el dinero que habrá constado pero ... ¡pa mi!. hablas con el jefe de la orquesta, toca irse para casa.
+uno de tus amigos se va ultra rápido.
+Te asomas a la calle doctor fleming? la de balaguer.
+Ves a la derecha que hay un grupito de chicas en un portal que está saludando.
+Están arregladas, vestidas para salir de fiesta.
+Miras a la izqauierda y hay otro grupido de chicos/chicas que les devuelven el saludo.
 Vaya, no te saludan a ti.
 
 
@@ -209,11 +208,11 @@ Vaya, no te saludan a ti.
 
 
 Cierras la puerta y piensas en irte a casa, miras el movil para ver si tu padre nosos viene a recoger, pero como ves que es un lio decides ir andando.
-Aparece << Ana de la carrera >> y te dice que no te vaya que aún es pronto.
-Le dices que te Vas igualmente que ya lo has decidido.
-Das un par de pasos, aparecen las chicas de antes y te dicen que no te vaya.
+Aparece << Ana de la carrera >> y te dice que no te vayas que aún es pronto.
+Le dices que te vas igualmente, que ya lo has decidido.
+Das un par de pasos, aparecen las chicas de antes y te dicen que no te vayas.
 Les dices lo mismo. Das un par de pasos más.
-Miras atrás mientras una chica te repite que no te vaya y te enseña un poco los pechos.
+Miras atrás mientras una chica te repite que no te vayas. Se decide y te enseña un poco los pechos.
 Sigues andando y vuelves a mirar atrás.
 Ahora se le ves claramente los pechos. Sigues andando y obviamente vuelves a mirar atrás.
 Habían mas mujeres mostrando sus pechos y más voces diciendo "anonimo" no te vayaaas, "anonimoooo"
@@ -229,7 +228,7 @@ Caminando por la av. papa luna ves de lejos a < R-MIR >.
 Ella también te ha visto pero no quieres saludarla hasta estar cerca.
 Ella está buscando algo por el suelo ...
 
-- Pues es que te tendría que haber llegado un coche pero por tamaño no lo han podido dejar - dijo
+- Pues es que me tendría que haber llegado un coche pero por tamaño no lo han podido dejar - dice
 
 La calle estas desierta pero todos los aparcamientos eran zona para el autobús y zona amarilla
 
@@ -256,15 +255,15 @@ Te fijas en quién te atenderá en esa ventanilla, y es Rocío, la youtuber gata
 
 - ¿Qué tal?, ¿qué alegría no? de ser *medio trabajador parcial de timpo completo*
 
-> A ti te sorprende que supiera eso de ti, pero claro, tiene la base de datos de ti vida laboral en el ordenador.
+> A tí te sorprende que supiera eso, pero claro, tiene la base de datos de tu vida laboral en el ordenador.
 
 - Eso es equivalente a un B2 de inglés - te dice
 
 - Sí, es una pena que no haya hecho los exámenes por que ahora tendría el título. Creo que tienes el B1. O ni eso tampoco, no lo recuerdo. - dices tímido
 Ella te da a entender que valoraba lo práctico antes que un título.
 
-Hablais de la orquesta por tus datos laborales, pero ella te conocía de más cosas.
-De un concierto del que tu también te acuerdas.
+Habláis de la orquesta por tus datos laborales, pero ella te conocía de más cosas ...
+De un concierto del que comienzas a recordar ...
 El concierto salió en la tele y habían más grupos.
 estás contento por que te conozca y te recuerde de ese concierto, aunque te da un poco de pena que sea por la orquesta y no por algún grupo guay que tuviste.
 Te hubiera gustado que te dijera, sí te vi con < PD > tocando < Me-voy-a-comprar-unos-Chetoos>
@@ -556,7 +555,7 @@ Está un poco rellena, tiene dos pechos grandes y caídos
 > incido en que eran dos porq al ser un sueño nunca se sabe
 
 el escenario cambia continuamente y el jacuzzy, que ahora es una piscina de piedra en mitad de una plaza pública con comercios.
-Esta´n ahora también amigos por ahí cerca, a tu amiga le empiezas a contar que es muy dificil ser freddie mercury porq la gente no te entiende y 
+Están ahora también amigos por ahí cerca, a tu amiga le empiezas a contar que es muy dificil ser freddie mercury porq la gente no te entiende y 
 
 > Pero en el sueño, a medida que folláis, te cambia el cuerpo y eres FM, y mientras tienes sexo con la chica se intercalaban  momentos de tercera persona donde tu te abstraes y observaba desde fuera.
 > En algún momento piensas que esta escena es una demostración de que freddie mercury tenía sexo heterosexual.
