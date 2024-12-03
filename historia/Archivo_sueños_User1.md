@@ -2,7 +2,7 @@
 
 Mmmmm no te van los links :(
 
-   - [Laberinto](#02122024-Laberinto)
+   [Laberinto](#02122024-Laberinto)
    - [Angustia](#10112014-Angustia)
    - [...](#07112024-...)
    - [...](#05112024-...)
