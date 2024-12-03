@@ -604,11 +604,11 @@ depués volveis a una antigua casa
 
  la parte de la casa, tienes que darle la vuelta al coche, pero el coche eran cuatro sillas en forma de cuadrado. tu padre quería que le dieras la vuelta pero tu no entendía que te pedía exactamente, porque no había coche,
 
-te pones a jugar al mario kart para desbloquear cre´ditos, que utilizarás para debloquear partes del coche, piensas en las ruedas para ponerselas a la silla, chasis, eje ... cualquier cosa.
+te pones a jugar al mario kart para desbloquear créditos, que utilizarás para debloquear partes del coche, piensas en las ruedas para ponerselas a la silla, chasis, eje ... cualquier cosa.
 
 te pones a jugar para desboquearlo y no logras desbloquear nada
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/1DD.jpg)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/1DD.png)
 
 
 
