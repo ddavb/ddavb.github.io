@@ -3,7 +3,7 @@
    - [Laberinto](#2122024-laberinto)
    - [Angustia](#10112024-no-te-rindas)
    - [Espejo](#7112024-espejo)
-   - [...](#5112024-)
+   - [Asq](#5112024-asq)
    - [Peñismar](#22102024-peñismal)
    - [Intermedio del iaio](#10102024-sueño-breve-iaio)
    - [Intermedio en China](#23092024-intermedio-en-china)
@@ -183,7 +183,7 @@ Por fin, piensas en <aP>.
 
 
 
-## 5/11/2024 ...
+## 5/11/2024 Asq
 
 [[ÍNDICE]](#sueños-por-editar)
 
