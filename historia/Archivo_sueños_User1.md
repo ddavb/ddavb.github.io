@@ -1,7 +1,7 @@
 # SUEÑOS por editar
 
    - [Laberinto](#2122024-laberinto)
-   - [No te rindas](#10112024-no-te-rindas)
+   - [Faena](#10112024-faena)
    - [Espejo](#7112024-espejo)
    - [Asq](#5112024-asq)
    - [Peñismar](#22102024-peñismal)
@@ -89,7 +89,7 @@ Es una carta en prosa escrita por una persona normal que consigió salir del lab
 ![conjunto mejor](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_5168.png)
 
 
-## 10/11/2024 No te rindas
+## 10/11/2024 Faena
 
 [[ÍNDICE]](#sueños-por-editar)
 
