@@ -79,10 +79,13 @@ Antes de despertarte, descubres un objeto histórico relevante.
 Es una carta en prosa escrita por una persona no experta que consigió salir del laberinto.
 Consigió superarlo gracias a un collar de maíz, por el cual escribió este texto (no lo recuerdas bien, pero te hubiera gustado que fuera así):
 
-- > Con el collar conseguí escapar
-- > Cada grano lo puede indicar
-- > Se siembra entre enero y septiembre
-- > Alimenta al humano cuando procede
+> Con el collar conseguí escapar
+>
+> Cada grano lo puede indicar
+>
+> Se siembra entre enero y septiembre
+>
+> Alimenta al humano cuando procede
 
 
 ![conjunto mejor](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_5168.png)
@@ -204,7 +207,7 @@ Miras a la izqauierda y hay otro grupido de chicos/chicas que les devuelven el s
 Vaya, no te saludan a ti.
 
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_20180702.jpg)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_20180702.png)
 
 
 Cierras la puerta y piensas en irte a casa, miras el movil para ver si tu padre nosos viene a recoger, pero como ves que es un lio decides ir andando.
