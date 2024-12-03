@@ -1,7 +1,7 @@
 # SUEÑOS por editar
 
    - [Laberinto](#2122024-laberinto)
-   - [Angustia](#10112024-no-te-rindas)
+   - [No te rindas](#10112024-no-te-rindas)
    - [Espejo](#7112024-espejo)
    - [Asq](#5112024-asq)
    - [Peñismar](#22102024-peñismal)
