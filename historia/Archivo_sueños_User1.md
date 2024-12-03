@@ -2,7 +2,7 @@
 
 
    - [Laberinto](#2122024-laberinto)
-   - [Angustia](#10112024-angustia)
+   - [Angustia](#10112024-no-te-rindas)
    - [...](#7112024-)
    - [...](#5112024-)
    - [Peñismar](#22102024-peñismal)
@@ -90,7 +90,7 @@ Es una carta en prosa escrita por una persona normal que consigió salir del lab
 ![conjunto mejor](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_5168.png)
 
 
-## 10/11/2024 Angustia
+## 10/11/2024 No te rindas
 
 [[ÍNDICE]](#sueños-por-editar)
 
