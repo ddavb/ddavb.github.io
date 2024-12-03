@@ -4,18 +4,18 @@ Mmmmm no te van los links :(
 
    - [Laberinto](#2122024-laberinto)
 
-   - [Angustia](#-10112014-Angustia)
+   - [Angustia](#10112024-angustia)
 
-   - [...](#-07112024-...)
-   - [...](#-05112024-...)
+   - [...](#7112024-)
+   - [...](#5112024-)
 
-   - [Peñismar](#-22102024-Peñismar)
+   - [Peñismar](#22102024-peñismal)
 
-   - [Intermedio del iaio](#10102024-Sueño-breve-iaio)
+   - [Intermedio del iaio](#10102024-sueño-breve-iaio)
 
-   [Intermedio en China](#23092024-Intermedio-en-China)
+   [Intermedio en China](#23092024-intermedio-en-china)
 
-   - [Karma](#20092024-Karma)
+   - [Karma](#20092024-karma)
    - [Haz cola para recordar](#18.09.2024-Haz-cola-para-recordar)
    - [Intermedio en UMA](#17092024-Fragmento-chino)
    - [Parte policial](#11092024-Parte-policial)
