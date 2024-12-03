@@ -1,9 +1,8 @@
 # SUEÑOS por editar
 
-
    - [Laberinto](#2122024-laberinto)
    - [Angustia](#10112024-no-te-rindas)
-   - [...](#7112024-espejo)
+   - [Espejo](#7112024-espejo)
    - [...](#5112024-)
    - [Peñismar](#22102024-peñismal)
    - [Intermedio del iaio](#10102024-sueño-breve-iaio)
@@ -155,7 +154,7 @@ Te vas caminando por la mar xica.
 Estás comiendo patatas fritas.
 En algún momento de ese viajes pierdes los recuerdos de que ha pasado.
 
-<AreyenS> viene a cenar a casa pero de camino te encuentras con <B> y hablas.
+<aP> viene a cenar a casa pero de camino te encuentras con <eB> y hablas.
 Habláis mucho y luego tenéis mucho de sexo en muchas posturas.
 
 Estáis yendo al supermercado a por comida. Peo acabas comprando zumo de naranja, lambrusco y algo más.
@@ -165,7 +164,7 @@ Te indican donde ir pero un tipo se cabrea, te dice de cambiar de sitios. Tú le
 
 - Eh, no os mováis. Que se quede tal como está, menos lio.
 
-Hablas mucho con <B>.
+Hablas mucho con <eB>.
 Temas insulsos y trabajo. Sin embargo:
 
 - Por fin estoy viendo la sociedad desde arriba. Una imagen sociológica completa de la sociedad.
@@ -178,8 +177,8 @@ Se transforma el entorno en una universidad mientras seguís hablando.
 Una uni que ya habías soñado hace tiempo, en un sueño angustioso con las oposiciones, o eso crees.
 De todas formas tienes un sueño viviendo un recuerdo de sueño, aunque pueda ser ficticio.
 
-Por fin, piensas en <P>.
-¿Habrá cenado finalmente sólo con tus padres?
+Por fin, piensas en <aP>.
+¿Habrá cenado finalmente sólo con <PMPM>?
 
 
 
@@ -189,20 +188,20 @@ Por fin, piensas en <P>.
 [[ÍNDICE]](#sueños-por-editar)
 
 Estás en la playa con bastante gente.
-Jairo, <J>, <Jonjo> y mas
+J, <aJ>, <aGT> y mas
 
-A Jairo le han dicho de tocar con kase.O por que una vez hizo un vide ode coña que rimaba con jazz magnetism y le propusieron ese proyecto.
+A J le han dicho de tocar con kase.O por que una vez hizo un vide ode coña que rimaba con jazz magnetism y le propusieron ese proyecto.
 
 Te cabrea. Piensas en todo en tiempo que te has esforzado y que agluien se lleve un premio por tener suerte, por garrulo.
 
 Pasa algo más en la playa ... Os estáis comportando como crios.
-<Jonjo> está meando a la gente. Lo ves y te toca a tí.
+<aGT> está meando a la gente. Lo ves y te toca a tí.
 Comienzas a tirar arena para que se seque el líquido, al menos minimizas daños.
 Pero no para y seguís asi ...
 
 Se cae en la arena y piensas QUE PUTO ASCO.
 A el se le acaba el pis y me meto al agua.
-Le dices a <J> que asco lo que acaba ocurrir.
+Le dices a <aJ> que asco lo que acaba ocurrir.
 Se ha solidificado con la arena.
 
 Te limpias bien ...
@@ -225,7 +224,7 @@ Tenía como medio antebrazo, un poco menos.
 
 Te pones a hablar de hombros.
 
-- Mi hermano tiene un hombro que es así - dices
+- <hA> tiene un hombro que es así - dices
 
 - Bua pues el mio es así
 
@@ -236,7 +235,7 @@ Por algo saubterráneo. Habláis.
 
 - Buaa la ronda de la torrasa. Tengo allí un colegaa
 
-Total, acabáis en la ronda de la torrassa. Vais al lcal de Pau, pero era un local/bajo comercial
+Total, acabáis en la ronda de la torrassa. Vais al bloqus, pero era un local/bajo comercial
 
 De repente llega el ministro de turismo de dinamarca.
 
@@ -327,9 +326,9 @@ Tú, fuera! - dice el agente de policía.
 Entran dos policías en el asiento, uno de ellos en el asiento del copiloto.
 Pensamos que va a ser un interrogatorio, pero ordena que arranquemos el coche y circulemos con ellos dentro.
 
-- Caballero - dice el agente dirigiéndose a tu padre - cuando ha pasad el suceso allí en su casa ¿(aquí debería haber una pregunta pero sólo imaginaste el concepto de pregunta)?
+- Caballero - dice el agente dirigiéndose a <PP> - cuando ha pasad el suceso allí en su casa ¿(aquí debería haber una pregunta pero sólo imaginaste el concepto de pregunta)?
 
-- No no, esto que dices no ha pasado en mi casa - dice tu padre - ha habido un incidente pero aquí en el hotel plaza
+- No no, esto que dices no ha pasado en mi casa - dice <PP> - ha habido un incidente pero aquí en el hotel plaza
 
 - Es que el chaval este ha hecho un parte un poco irreal y tenemos sospechas de que esconde algo gordo ...
 
@@ -339,7 +338,7 @@ Uno de los agentes recibe una llamada en el walkie talkie y sale una mano sin cu
 
 Miras y hay una nube enorme con forma de castillo ... es una explosión de alguien que sabía hacer magia.
 
-Piensas: claro ... se han llevado detenido a este chaval a la comisaría y a venído su padre, que es más figura, y ha hecho magia y lo a liberado. Observas el espectáculo ... tiene su encanto
+Piensas: claro ... se han llevado detenido a este chaval a la comisaría y a venído <sPP>, que es más figura, y ha hecho magia y lo a liberado. Observas el espectáculo ... tiene su encanto
 
 
 
@@ -348,7 +347,7 @@ Piensas: claro ... se han llevado detenido a este chaval a la comisaría y a ven
 [[ÍNDICE]](#sueños-por-editar)
 
 Estás en un coche, un sub negro.
-Conduce tu iaio de 99 años, que de repente está para conducir. En verdad no mucho ...
+Conduce tu iaio con sus 99 años, que de repente está para conducir. En verdad no mucho ...
 Tu vas diciendo Uh uh uuuh mientras te lleva en carril contrario por la avenida Papa Luna.
 
 -- Por ahí no iaio! - dices sin pretender bajarle la moral
@@ -357,7 +356,7 @@ Tu vas diciendo Uh uh uuuh mientras te lleva en carril contrario por la avenida 
 
 -- Veus ahí? Sempre se veu l`hermita de Sant Antoni
 
-Tú estás cada vez mas acojonado y ves a tus padres que vienen de cara.
+Tú estás cada vez mas acojonado y ves a <PMPM> que vienen de cara.
 
 -- Ya está, ya he conseguido que vaya por el carril que toca. No os preocupéis
 
@@ -411,13 +410,13 @@ Cansado pero activo, te pregunta si saldras de noche y le dices que no. El es RR
 > Para cuando acaba la conversación hay un montón de gente sentada
 
 
-> En algún momento apareces en un bar. estas con el hermano de << areyenS >>. Está invalido
+> En algún momento apareces en un bar. estas con el hermano de <aP>. Está invalido
 > Te pregunta sobre las oposiciones y tu contestas. Te preguntan si estás bien.
 > Te extraña por q te da la sensación de que ellos piensan que estas triste por haber suspendido, pero aún no has hecho exámenes recientemente.
 
 > Esta conversación se alarga pero no te acuerdas de mas detalles.
 
-> Luego estás en , en tu habitación con << Dry >> y << amigoJ >>, jugando a la gamecube.
+> Luego estás en , en tu habitación con <hA> y <aJ>, jugando a la gamecube.
 > De alguna forma te quedas sólo y del resto tampoco me acuerdo
 
 
@@ -428,7 +427,7 @@ Estás en un recindo muy grande y lleno de gente.
 Hay pasarelas y gente animando, música, luces ...
 
 Están a punto de llamar a los músico para darles algún premio.
-Le dicen a << Dry >> y a ti de subir a recibir premios. Tú piensas que al no haber hecho la ttemporada de verano con esa orquesta, no mereces ese reconocimiento. has hecho algún bolo pero ya te lo habías dejado. Y Mr.Dri tampoco lo merecía porq no tiene nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, ¡que se fastidien!.
+Le dicen a <hA> y a ti de subir a recibir premios. Tú piensas que al no haber hecho la ttemporada de verano con esa orquesta, no mereces ese reconocimiento. has hecho algún bolo pero ya te lo habías dejado. Y <hA> tampoco lo merecía porq no tiene nada que ver con esa orquesta, pero al ser los dos músicos y que el dinero del evento lo ponía alguien con mucho dinero, ¡que se fastidien!.
 
 está petadísimo todo. en la pasarela, al principio del todo justo al subir, estás eufórico y te pones a bailar tektonic.
 Únicamente  te ven bailar cuatro/5 personas del público y les hace gracia
@@ -446,7 +445,7 @@ Vaya, no te saludan a ti.
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_20180702.png)
 
 
-Cierras la puerta y piensas en irte a casa, miras el movil para ver si tu padre nosos viene a recoger, pero como ves que és un lio decides ir andando.
+Cierras la puerta y piensas en irte a casa, miras el movil para ver si <PP> nos viene a recoger, pero como ves que és un lio decides ir andando.
 Aparece << Ana de la carrera >> y te dice que no te vayas que aún es pronto.
 Le dices que te vas igualmente, que ya lo has decidido.
 Das un par de pasos, aparecen las chicas de antes y te dicen que no te vayas.
@@ -514,7 +513,7 @@ Te hubiera gustado que te dijera: sí te vi con < PD > tocando < Me-voy-a-compra
 > Aquí le cuento una história que te hace perder el hilo del sueño:
 
 En ese momento todo a ti alrededor cambia.
-te encuentras reviviendo un recuerdo de un día con << areyenS >>, donde visitásteis el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" es ...
+te encuentras reviviendo un recuerdo de un día con << aP >>, donde visitásteis el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" es ...
 
 > Ese recuerdo en la vida real nunca existió, pero en el sueño lo vivo como un recuerdo
 
@@ -526,11 +525,11 @@ Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, ca
 
 Tu por teléfono ya has dicho que al final no tocasteis por que a << zapatero >> no le pareció buena idea.
 Que podríamos haber grabado todo con video y audio y que va una pena no habernos puesto de acuerdo.
-< areyenS > asentía con ímpetu.
+< aP > asentía con ímpetu.
 
-Mientras revives el recuerdo, a << areyenS >> y a ti os da un poco de rabia porq sí que os habría gustado tocar.
+Mientras revives el recuerdo, a << aP >> y a ti os da un poco de rabia porq sí que os habría gustado tocar.
 Váis caminando por el lugar en cuestión, con un pedo tremendo.
-Bajando por un desnivel, << areyenS >> da un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
+Bajando por un desnivel, << aP >> da un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
 Tú tienes que hacer lo mismo, pero con la borrachera vas con sumo cuidado, a cuatro patas y despacito.
 A mitad de la distancia te caes de espaldas.
 El suelo está cerca y es como caer de una hamaca encima de la suave arena.
@@ -546,7 +545,7 @@ Mientras seguís caminando, poco a poco Vas abriendo los ojos secos por no haber
 
 [[ÍNDICE]](#sueños-por-editar)
 
->cena familiar y tu padre hace algo torpe con lo que le hechamos la bronca
+>cena familiar y <PP> hace algo torpe con lo que le hechamos la bronca
 
 caminando por UMA encuentras un nuevo local. Los dueños están en la terraza.
 son dos chinos y están fumando. te enseñan unas hamburguesas que tienen una pinta brutal ... tremenda ... piensas que es un buen lugar para tener en cuenta y le mandas una foto del sitio a << MG >>. 
@@ -561,27 +560,27 @@ En ese momento ves que te está escribiendo por instagram para contarte que ha s
 
 [[ÍNDICE]](#sueños-por-editar)
 
-> vas con tu padre y hermano en una furgoneta de viaje. No, con el peugeot.
+> vas con <PP> y <hA> en una furgoneta de viaje. No, con el peugeot.
 > veniis de algún sitio y vais a otro sitio indeterminado
 
 De donde venís, os mandaron un mensaje.
-Tu padre que conduce se pone a leerlo y deja los mandos del volante
+<PP> conduce y se pone a leerlo. Deja los mandos del volante
 Intentas avisarle de que había un semaforo en rojo. Cojes tu finalmente el volante y empeciezas a esquivar coches.
 
-- ¿PADRE QUE HACES?, presta atención ¡ COJE EL VOLANTE !
+- ¿<PP> QUE HACES?, presta atención ¡ COJE EL VOLANTE !
 
 - pero si ya sabes donde está el embrage - dice, con intención de decir hazlo tú
 
 pones el freno de mano, el coche empieza a derrapar ... chocáis.
 una locura.
-tú que estas en schock piensas ¿qué cojones acaba de pasar? mi padre no es así, en serio ¿qué ha pasado?
-Cabreadísimo se lo intentas explicar a << Dry >>, intentas hablar con tu padre, !intentas hablar! pero no puedes. estas afónico de tanto gritar.
+tú que estas en schock piensas ¿qué cojones acaba de pasar? <PP> no es así, en serio ¿qué ha pasado?
+Cabreadísimo se lo intentas explicar a <hA>, intentas hablar con <PP>, !intentas hablar! pero no puedes. estas afónico de tanto gritar.
 Drama.
 
 Piensas que igual hay que hacer un parte, llamar a la policía ... hacer algo
 Ellos te dicen vale vale
 
-tu rayadísimo. Empiezas a pensar que has de decirle a la policía, por que si dices la verdad, al igual meto en problemas a tu padre.
+tu rayadísimo. Empiezas a pensar que has de decirle a la policía, por que si dices la verdad, al igual meto en problemas a <PP>.
 Pero esq algo hay que decir.
 
 A Los polis no les interesa el asunto: ay no sabes qué, valo esto, si ... iros y os avisamos
@@ -594,7 +593,7 @@ A Los polis no les interesa el asunto: ay no sabes qué, valo esto, si ... iros 
 
 - yaa ya, es que al igual no os interesa hacer un parte
 
-Padre y << Dry >> se fueron. tu te quedas con la policía para enseñar la furgoneta por dentro, para que vieran que no había nada que investigar, que sois gente normal que solo ha tenido un accidente. Que no hace falta que investiguen dos años la furgoneta.
+<PP> y <hA> se fueron. tu te quedas con la policía para enseñar la furgoneta por dentro, para que vieran que no había nada que investigar, que sois gente normal que solo ha tenido un accidente. Que no hace falta que investiguen dos años la furgoneta.
 
 Vas a enseñarle la furgoneta por dentro y abres una puerta
 
@@ -616,7 +615,7 @@ abres otra puerta y hay más revistas. Esta vez revistas porno. Una portada de t
 
 [[ÍNDICE]](#sueños-por-editar)
 
-Una noche pescando con << amigo J >>, le insistes en que tiene que regular la presión de las ruedas del coche.
+Una noche pescando con <aJ>, le insistes en que tiene que regular la presión de las ruedas del coche.
 A pesar de argumentartee que estás equivocado, lo hace y se da cuenta de que ahora es más feliz.
 
 
@@ -625,7 +624,7 @@ Edificios señoriales y las calles sucias y aún por peatonalizar.
 Ves gente pasar con tabaco y te apetece uno. Aguantas o te olvidas, no sabes.
 
 
-Estas ahora en el centro comercial de Benicarló (pero diferente) con << M Gal >>
+Estas ahora en el centro comercial de Benicarló (pero diferente) con <eMG>
 Vais a una tienda y ahí esta el ex como segurata.
 Ella va a hablar con él y luego vuelven los dos.
 Hablas con él de guay, siendo una situación incómoda.
@@ -655,7 +654,7 @@ Aunque no te fijaste en la luna hasta que paso todo esto, te molestó el comerci
 
 [[ÍNDICE]](#sueños-por-editar)
 
-Estás con << amigo J >> pegandoos en broma cuando de repente, conduciendo en coche por la rotonda de la raya del terme, pierdes el control (creo) y tienes un accidente multiple.
+Estás con <aJ> pegandoos en broma cuando de repente, conduciendo en coche por la rotonda de la raya del terme, pierdes el control (creo) y tienes un accidente multiple.
 
 A pesar del impacto intentas salir conduciendo de la rotonda.
 Pero estás aturdido y das varios trompos
@@ -727,25 +726,25 @@ Te das cuenta de que ya estas en Benicarló.
 
 [[ÍNDICE]](#sueños-por-editar)
 
-Vas con tus padres por san gregori y te cruzas con << ex M >>.
+Vas con <PMPM> por san gregori y te cruzas con <eMC>.
 está un poco cambiada y daba miedo. parece una bruja.
-Por algun motivo tus pdres se paran en la misma calle, en un puestito que habían preparado para vender ellos también.
+Por algun motivo <PMPM> se paran en la misma calle, en un puestito que habían preparado para vender ellos también.
 
 Te das cuenta de que hay una chica que se está acercando.
-No es << ex M >>.
+No es <eMC>.
 Es mas alta y mas arreglada.
 Sabes que es una trampa e intentas escaparte de ella.
-Pero cerca de tus padres, no quieres dejarlos solos.
+Pero cerca de <PMPM>, no quieres dejarlos solos.
 Ella te atrapa, te exige que vayas con ella.
 tú no quieres.
 En ese instante y expresando un sentimiento de furia, crea una escena donde un coche la atropella.
 Muy irreal para tí, pero suficiente para engañar al resto de gete. Todo teatro, pero verosímil.
 
-Ella muestra su verdadero físico, ya es la persona real << ex M >>, llena de sangre falsa.
+Ella muestra su verdadero físico, ya es la persona real <eMC>, llena de sangre falsa.
 Y tú, ‘culpable’, te exige que te vaya con ella o sufrirás. 
-Tus padres ven la escena con miedo.
+<PMPM> ven la escena con miedo.
 Tu les dices que no miren, que deberías haber puesto otra peli.
-Tu madre repite, como siempre que hay una pelicula gore/terror: ayyy cambialaa
+<MM> repite, como siempre que hay una pelicula gore/terror: ayyy cambialaa
 
 ![For real bro](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/mar.png)
 
@@ -839,7 +838,8 @@ te haces amigo de un chino y empieza a hacer cosas guays
 
 depués volveis a una antigua casa
 
- la parte de la casa, tienes que darle la vuelta al coche, pero el coche eran cuatro sillas en forma de cuadrado. tu padre quería que le dieras la vuelta pero tu no entendía que te pedía exactamente, porque no había coche,
+ la parte de la casa, tienes que darle la vuelta al coche, pero el coche eran cuatro sillas en forma de cuadrado.
+ <PP> quería que le dieras la vuelta pero tu no entendía que te pedía exactamente, porque no había coche,
 
 te pones a jugar al mario kart para desbloquear créditos, que utilizarás para debloquear partes del coche, piensas en las ruedas para ponerselas a la silla, chasis, eje ... cualquier cosa.
 
