@@ -210,7 +210,7 @@ Vaya, no te saludan a ti.
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_20180702.png)
 
 
-Cierras la puerta y piensas en irte a casa, miras el movil para ver si tu padre nosos viene a recoger, pero como ves que es un lio decides ir andando.
+Cierras la puerta y piensas en irte a casa, miras el movil para ver si tu padre nosos viene a recoger, pero como ves que és un lio decides ir andando.
 Aparece << Ana de la carrera >> y te dice que no te vayas que aún es pronto.
 Le dices que te vas igualmente, que ya lo has decidido.
 Das un par de pasos, aparecen las chicas de antes y te dicen que no te vayas.
@@ -233,14 +233,14 @@ Ella está buscando algo por el suelo ...
 
 - Pues es que me tendría que haber llegado un coche pero por tamaño no lo han podido dejar - dice
 
-La calle estas desierta pero todos los aparcamientos eran zona para el autobús y zona amarilla
+La calle está desierta y todos los aparcamientos son zona para el autobús y zona amarilla
 
 Asumes que no puedes ayudar y te vas.
-Cuando lleguas a ticana entras.
-Ticana es diferente ... es una oficina del ayuntamiento y con alma de pescadería.
+Cuando lleguas a ticana, entras.
+Ticana es diferente ... és una oficina del ayuntamiento y con alma de pescadería.
 Hay que cojer tiket y está toda la sala llena.
 También las ventanillas para atender a la gente.
-La gente coje los tikets de 4 en 4 y tu también lo haces cuando se te acaba la amabilidad y ves la oportunidad de poner la mano para arrancar de cuajo un fajo de tickets.
+La gente coje los tikets de 4 en 4 y tú también lo haces cuando se te acaba la amabilidad y ves la oportunidad de poner la mano para arrancar de cuajo un fajo de tickets.
 
 > Esto no lo recuerdo, pero cantan los turnos de forma así:
 >
@@ -269,17 +269,16 @@ Habláis de la orquesta por tus datos laborales, pero ella te conocía de más c
 De un concierto del que comienzas a recordar ...
 El concierto salió en la tele y habían más grupos.
 estás contento por que te conozca y te recuerde de ese concierto, aunque te da un poco de pena que sea por la orquesta y no por algún grupo guay que tuviste.
-Te hubiera gustado que te dijera, sí te vi con < PD > tocando < Me-voy-a-comprar-unos-Chetoos>
+Te hubiera gustado que te dijera: sí te vi con < PD > tocando < Me-voy-a-comprar-unos-Chetoos>
 
 > Le empezas a contar cosas de ese día, te sale de dentro.
 
-- Pues el fragmento del concierto que salió en la tele, que va previo al fragmento del concierto de Lèpoka, va de la orquesta < SM >. - Dices mientras ella hace muecas para transmitirme que ya lo sabe. Lo he visto, te dice.
-tu sigues con un: pero podría haber sido de << Dale Pomada >>, pero por tonterías no lo fué.
+- Pues el fragmento del concierto que salió en la tele, que va previo al fragmento del concierto de Lèpoka, va de la orquesta < SM >. - dices mientras ella hace muecas para transmitirme que ya lo sabe. Tu sigues con un: pero podría haber sido de << Dale Pomada >>, pero por tonterías no lo fué.
 
 > Aquí le cuento una história que te hace perder el hilo del sueño:
 
 En ese momento todo a ti alrededor cambia.
-te encuentras reviviendo un recuerdo de un día con << areyenS >>, donde visitásteis el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" ...
+te encuentras reviviendo un recuerdo de un día con << areyenS >>, donde visitásteis el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" es ...
 
 > Ese recuerdo en la vida real nunca existió, pero en el sueño lo vivo como un recuerdo
 
@@ -293,10 +292,10 @@ Tu por teléfono ya has dicho que al final no tocasteis por que a << zapatero >>
 Que podríamos haber grabado todo con video y audio y que va una pena no habernos puesto de acuerdo.
 < areyenS > asentía con ímpetu.
 
-Mientras revivías el recuerdo, a << areyenS >> y a ti os dió un poco de rabia, porq a nosotros sí que nos hubiera gustado tocar.
+Mientras revives el recuerdo, a << areyenS >> y a ti os da un poco de rabia porq sí que os habría gustado tocar.
 Váis caminando por el lugar en cuestión, con un pedo tremendo.
-Bajando por un desnivel, << areyenS >> dió un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
-tu tienes que hacer lo mismo, pero con la borrachera vas con sumo cuidado, a cuatro patas y despacito.
+Bajando por un desnivel, << areyenS >> da un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
+Tú tienes que hacer lo mismo, pero con la borrachera vas con sumo cuidado, a cuatro patas y despacito.
 A mitad de la distancia te caes de espaldas.
 El suelo está cerca y es como caer de una hamaca encima de la suave arena.
 El resto de desnivel lo bajas como si fuera un tobogán.
