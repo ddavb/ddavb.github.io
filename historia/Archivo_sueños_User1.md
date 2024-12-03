@@ -90,13 +90,23 @@ Consigió superarlo gracias a un collar de maíz, por el cual escribió este tex
 
 ## 10/11/2024 Angustia
 
+[[ÍNDICE]](#sueños-por-editar)
+
 ## 7/11/2024 ...
+
+[[ÍNDICE]](#sueños-por-editar)
 
 ## 5/11/2024 ...
 
+[[ÍNDICE]](#sueños-por-editar)
+
 ## 22/10/2024 Peñismal
 
+[[ÍNDICE]](#sueños-por-editar)
+
 ## 10/10/2024 Sueño breve iaio
+
+[[ÍNDICE]](#sueños-por-editar)
 
 Estáss en un coche, un sub negro.
 Conduce tu iaio de 99 años, que de repente está para conducir. En verdad no no mucho.
@@ -116,6 +126,7 @@ Estás en tu habitación, tu iaio en la suya.
 Lo ves y piensas en cederle tu habitación por que tiene balcón.
 Quizá le venga bien para andar
 
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/abuelo2)
 
 
 
