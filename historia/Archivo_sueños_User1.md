@@ -110,7 +110,7 @@ Tu turno, entras dentro.
 
 - Pues escucha es que no la tengo impresa, pero puedes verla aquí en el móvil. Existir existe pero no la tengo impresa. Buscamos en la página web que seguro que están mis datos, nos...
 
-- Noo. Pero esto. Ya sabes que tienes que tener el papel. Además dejame ver - mira la pantalla del móvil - si esto ni siquiera te sirve. Pone el nombre de tu madre.
+- Noo. Pero esto. Ya sabes que tienes que tener el papel. Además dejame ver - mira la pantalla del móvil - si esto ni siquiera te sirve. Pone el nombre de < MM >.
 
 - ¿Como? - dices mientras te repites a ti mismo que necesitas pensar rápido - Bueno vale, ¿me puedo esperar al final de la cola para ver si me da tiempo a imprimirlo?
 
@@ -152,7 +152,7 @@ Te ofuscas
 
 Te vas caminando por la mar xica.
 Estás comiendo patatas fritas.
-En algún momento de ese viajes pierdes los recuerdos de que ha pasado.
+En algún momento de ese viajes pierdes los recuerdos sobre lo que ha pasado.
 
 < aP > viene a cenar a casa pero de camino te encuentras con < eB > y hablas.
 Habláis mucho y luego tenéis mucho de sexo en muchas posturas.
