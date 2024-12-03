@@ -76,8 +76,7 @@ Otras veces es lo que quiere, para crear puertas escondidas en las paredes para 
 Estas puertas no está indicadas. solo las ubican los expertos del laberinto, que previamente han debido recorrerlo.
 
 Antes de despertarte, descubres un objeto histórico relevante.
-Es una carta en prosa escrita por una persona no experta que consigió salir del laberinto.
-Consigió superarlo gracias a un collar de maíz, por el cual escribió este texto (no lo recuerdas bien, pero te hubiera gustado que fuera así):
+Es una carta en prosa escrita por una persona normal que consigió salir del laberinto gracias a un collar de maíz, por el cual, escribió este texto (no lo recuerdas bien, pero quizá dijo esto):
 
 > Con el collar conseguí escapar
 >
