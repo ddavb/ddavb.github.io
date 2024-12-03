@@ -124,7 +124,7 @@ Quizá le venga bien para andar
 
 ## 23/09/2024 Intermedio en China
 
-- [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 Observas una ciudad China enorme.
 Una ciudad planificada que posee edificios majestuosos, parques y árboles encantadores ... inefable!
@@ -141,7 +141,7 @@ Ese deseo te despierta.
 
 ## 20/09/2024 Karma
 
-- [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 ### 1st round vacilador
 
@@ -214,7 +214,7 @@ Habían mas mujeres mostrando sus pechos y más voces diciendo "anonimo" no te v
 
 ## 18.09.2024 Haz cola para recordar
 
-- [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 Caminando por la av. papa luna ves de lejos a < R-MIR >.
 Ella también te ha visto pero no quieres saludarla hasta estar cerca.
@@ -298,7 +298,7 @@ Mientras seguís caminando, poco a poco Vas abriendo los ojos secos por no haber
 
 ## 17/09/2024 Fragmento chino
 
-- [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 >cena familiar y tu padre hace algo torpe con lo que le hechamos la bronca
 
@@ -313,7 +313,7 @@ En ese momento ves que te está escribiendo por instagram para contarte que ha s
 
 ## 11/09/2024 Parte policial
 
-- [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 > vas con tu padre y hermano en una furgoneta de viaje. No, con el peugeot.
 > veniis de algún sitio y vais a otro sitio indeterminado
@@ -368,7 +368,7 @@ abres otra puerta y hay más revistas. Esta vez revistas porno. Una portada de t
 
 ## 07/09/2024 Molestias
 
-- [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 Una noche pescando con << amigo J >>, le insistes en que tiene que regular la presión de las ruedas del coche.
 A pesar de argumentartee que estás equivocado, lo hace y se da cuenta de que ahora es más feliz.
@@ -407,7 +407,7 @@ Aunque no te fijaste en la luna hasta que paso todo esto, te molestó el comerci
 
 ## 29/08/2024 Las rotondas son el mal y un matón
 
-- [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 Estás con << amigo J >> pegandoos en broma cuando de repente, conduciendo en coche por la rotonda de la raya del terme, pierdes el control (creo) y tienes un accidente multiple.
 
@@ -438,7 +438,7 @@ El increpador hace de maton ... (es << huracán MP >>) y es bastante original di
 
 ## Un problema que se resuelve solo 
 
-- [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 En un difuso inicio, estáss cachondo y de camino a tu pueblo.
 Llegas a la estacion de castellon para coger l tren de noche.
@@ -479,7 +479,7 @@ Te das cuenta de que ya estas en Benicarló.
 
 ## 27/08/2024 Terror acolchado
 
-- [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 Vas con tus padres por san gregori y te cruzas con << ex M >>.
 está un poco cambiada y daba miedo. parece una bruja.
@@ -508,7 +508,7 @@ Tu madre repite, como siempre que hay una pelicula gore/terror: ayyy cambialaa
 
 ## 28/03/2021 Boxeo, sexo y un loop
 
-- [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 *TRANSCRIPCIÓN del audio:*
 
@@ -607,7 +607,7 @@ te pones a jugar para desboquearlo y no logras desbloquear nada
 
 ## Una partida confusa
 
-- [[ÍNDICE]](#SUEÑOS-crudos-por-editar)
+[[ÍNDICE]](#SUEÑOS-crudos-por-editar)
 
 > En este sueño tienes la sensación de que se repite. Pero puede que simplemente, mientras se desarrollan los sucesos, Vas pensando en otras cosas posibles, como en una partida de ajedrez
 
