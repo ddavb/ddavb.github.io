@@ -150,14 +150,13 @@ Te ofuscas
 
 - aah no jaja
 
-Te vas caminando por la mar xica.
-Estás comiendo patatas fritas.
+Te vas caminando por la mar xica. Comiendo patatas fritas.
 En algún momento de ese viajes pierdes los recuerdos de que ha pasado.
 
 < aP > viene a cenar a casa pero de camino te encuentras con < eB > y hablas.
-Habláis mucho y luego tenéis mucho de sexo en muchas posturas.
+Habláis mucho y luego os hartáis de sexo multipostural.
 
-Estáis yendo al supermercado a por comida. Peo acabas comprando zumo de naranja, lambrusco y algo más.
+Yendo al supermercado acabas comprando zumo de naranja, lambrusco y algo más.
 
 En la cola hay mucha gente.
 Te indican donde ir pero un tipo se cabrea, te dice de cambiar de sitios. Tú le espetas
@@ -173,13 +172,12 @@ Temas insulsos y trabajo. Sin embargo:
 
 Te habla del centro comercial de vinaros que han hecho un paso de zebra grande que atraviesa la carretera y más sitios.
 
-Se transforma el entorno en una universidad mientras seguís hablando.
-Una uni que ya habías soñado hace tiempo, en un sueño angustioso con las oposiciones, o eso crees.
-De todas formas tienes un sueño viviendo un recuerdo de sueño, aunque pueda ser ficticio.
+> transforma el entorno en una universidad mientras seguís hablando. Una uni que ya habías soñado hace tiempo, en un sueño angustioso con las oposiciones, o eso crees. De todas formas tienes un sueño viviendo un recuerdo de sueño, aunque pueda ser ficticio.
 
 Por fin, piensas en < aP >.
 ¿Habrá cenado finalmente sólo con < PMPM >?
 
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/cat.png)
 
 
 
