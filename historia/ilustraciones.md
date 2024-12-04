@@ -1,7 +1,9 @@
 # Ilustraciones y fotos editadas
 
+[Ilustraciones - photo edit](./historia/ilustraciones.md)
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.png)
+
 
 ## 2/12/2024 Laberinto
 
