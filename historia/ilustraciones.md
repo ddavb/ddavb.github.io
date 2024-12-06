@@ -15,7 +15,7 @@
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/apuntes.png)
 
 
-## 7/11/2024 Espejo
+## 7/11/2024 Reflejo
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/cat.png)
 
