@@ -180,7 +180,7 @@ El resto de desnivel lo bajas como si fuera un tobogán.
 
 Mientras seguís caminando, poco a poco Vas abriendo los ojos secos por no haber bebido suficiente agua
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/playa.jpg)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/playa.png)
 
 
 
