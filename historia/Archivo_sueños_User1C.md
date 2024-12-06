@@ -2,7 +2,7 @@
 
    - [Laberinto](#2122024-laberinto)
    - [Faena](#10112024-faena)
-   - [Espejo](#7112024-espejo)
+   - [Reflejo](#7112024-reflejo)
    - [Asq](#5112024-asq)
    - [Peñismar](#22102024-peñismal)
    - [Intermedio del iaio](#10102024-sueño-breve-iaio)
@@ -117,7 +117,7 @@ Te esfuerzas tanto que sales del sueño. Alivio ...
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/apuntes.png)
 
 
-## 7/11/2024 Espejo
+## 7/11/2024 Reflejo
 
 [[ÍNDICE]](#sueños-por-editar)
 
