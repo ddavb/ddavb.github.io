@@ -23,7 +23,7 @@
 ## 5/11/2024 Asq
 
 ## 22/10/2024 Peñismal
-
+ 
 ## 10/10/2024 Sueño breve iaio
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/abuelo2.png)
@@ -43,7 +43,7 @@
 
 ## 18.09.2024 Haz cola para recordar
 
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/playa.jpg)
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/playa.png)
 
 
 ## 17/09/2024 Fragmento UMA
