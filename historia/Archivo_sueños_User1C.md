@@ -32,7 +32,7 @@ Estás ahora con un grupo de gente disfrutando de la fiesta que se está montand
 Hablas con alguien de las oportunidades que genera a la gente pertenecer al colectivo musical y hacer cosas a lo largo de tu vida ... 
 
 Se te olvida que estás en la Aldea y el entorno ahora pertenece a Benicarló.
-Está Felipe II, sin camiseta y con una musculatura espectacular. Es raro por que tiene tremendos pectorales en los homoplatos.
+Está Felipe VI, sin camiseta y con una musculatura espectacular. Es raro por que tiene tremendos pectorales en los homoplatos.
 De todas formas se le ve fardar de cuerpazo.
 Parece una persona de pueblo más, caminando para hacer algo ...
 Como si formara parte de una organización humilde, que está moviendo bidondes de cerveza para cuando comience el guateque.
