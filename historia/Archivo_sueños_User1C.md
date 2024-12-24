@@ -90,7 +90,7 @@ Estás ahora con un grupo de gente disfrutando de la fiesta que se está montand
 Hablas con alguien de las oportunidades que genera a la gente pertenecer al colectivo musical y hacer cosas a lo largo de tu vida ... 
 
 Se te olvida que estás en la Aldea y el entorno ahora pertenece a Benicarló.
-Está Felipe II, sin camiseta y con una musculatura espectacular. Es raro por que tiene tremendos pectorales en los homoplatos.
+Está Felipe VI, sin camiseta y con una musculatura espectacular. Es raro por que tiene tremendos pectorales en los homoplatos.
 De todas formas se le ve fardar de cuerpazo.
 Parece una persona de pueblo más, caminando para hacer algo ...
 Como si formara parte de una organización humilde, que está moviendo bidondes de cerveza para cuando comience el guateque.
@@ -110,13 +110,13 @@ Te decides a preguntar que hay ahí dentro y te comenta por encima:
 
 Te acercas pero no ves gran cosa, solo un depósito conectado con el subsuelo donde tiran cosas.
 Vas a la parte trasera y ves una especie de bolas almacenadas.
-Son bellotas cuyo fruto es verde radioactivo.
+Son bellotas cuyo fruto es de color verde radioactivo.
 Son del tamaño de s sandías.
 No son uniformes/homogéneas entre sí, varian mucho entre cada bellota.
 
 - Mira. Esto son las bellotas que la babosa ha de selecciónar para continuar con el dominó.
 Una vez lo termine se habrá completado el laberinto - dice ella -
-Le estamos pidiendo a la babosa que nos responda que tamaño de bellota necesita, por que no podemos tirar cualquiera ahí dentro. Estamos esperando a su respuesta.
+Le estamos pidiendo a la babosa que nos responda que tamaño de bellota necesita, por que no podemos tirar cualquiera ahí dentro. Estamos esperando a que responda.
 Hay veces que el tamaño es demasiado grande, por lo que no encaja en su estructura y las paredes que construye son endebles.
 Otras veces es lo que quiere, para crear puertas escondidas en las paredes para entrar y salir,
 Estas puertas no está indicadas. solo las ubican los expertos del laberinto, que previamente han debido recorrerlo.
@@ -202,7 +202,7 @@ Estás comiendo patatas fritas.
 En algún momento de ese viajes pierdes los recuerdos sobre lo que ha pasado.
 
 < aP > viene a cenar a casa pero de camino te encuentras con < eB > y hablas.
-Habláis mucho y luego os hartáis de sexo multipostural.
+Habláis mucho y luego os hartáis de sexo.
 
 Yendo al supermercado acabas comprando zumo de naranja, lambrusco y algo más.
 
@@ -220,7 +220,7 @@ Temas insulsos y trabajo. Sin embargo:
 
 Te habla del centro comercial de vinaros que han hecho un paso de zebra grande que atraviesa la carretera y más sitios.
 
-> transforma el entorno en una universidad mientras seguís hablando. Una uni que ya habías soñado hace tiempo, en un sueño angustioso con las oposiciones, o eso crees. De todas formas tienes un sueño viviendo un recuerdo de sueño, aunque pueda ser ficticio.
+> Se transforma el entorno en una universidad mientras seguís hablando. Una uni que ya habías soñado hace tiempo, en un sueño angustioso con las oposiciones, o eso crees. De todas formas tienes un sueño viviendo un recuerdo de sueño, aunque pueda ser ficticio.
 
 Por fin, piensas en < aP >.
 ¿Habrá cenado finalmente sólo con < PMPM >?
@@ -242,11 +242,11 @@ Te cabrea. Piensas en todo en tiempo que te has esforzado y que agluien se lleve
 
 Pasa algo más en la playa ... Os estáis comportando como crios.
 < aGT > está meando a la gente. Lo ves y te toca a tí.
-Comienzas a tirar arena para que se seque el líquido, al menos minimizas daños.
+Comienzas a tirar arena para que se seque el líquido y no te llegue a tocar. minimizas daños.
 Pero no para y seguís asi ...
 
 Se cae en la arena y piensas QUE PUTO ASCO.
-A el se le acaba el pis y me meto al agua.
+A el se le acaba el pis y te metes al agua.
 Le dices a < aJ > que asco lo que acaba ocurrir.
 Se ha solidificado con la arena.
 
@@ -284,21 +284,19 @@ Por algo saubterráneo. Habláis.
 Total, acabáis en la ronda de la torrassa. Vais al bloqus, pero era un local/bajo comercial
 
 De repente llega el ministro de turismo de dinamarca.
-
-Como ese local está muy hecho polvo no viene a traer cosas.
-
+Como ese local está muy hecho polvo, empieza a traer cosas.
 Pantallas, material ...
 
-Se justifica. Si es que el miniserio de dinamarca es corrupto. Nadie se va a dar cuenta.
+Se justifica: 'Si es que el miniserio de dinamarca es corrupto. Nadie se va a dar cuenta.'
 
-Dieramos que lo pasaremos por estas partidas no se que ...
+Diremos que lo pasaremos por estas partidas, no se que ...
 
-Para terminar. Se ve que ese local conectaba con una especie de museo, zona de ocio, comercial, zoo, jardín
+Justo ese local conectaba con una especie de museo, una zona de ocio, comercial, zoo, jardín
 Sala to grande que conectaba con otras cosas.
 Estaba lleno de turistas.
 Recuerdas muchos asiaticos.
 Teníais que hacer el paripé para evitar que os pillen por le mateiral de dinamarca
-Finjís que soys turistas y os libráis.
+Finjís que sois turistas y os libráis.
 Acabais en el local comercial. Todo bien
 
 
@@ -307,7 +305,7 @@ Acabais en el local comercial. Todo bien
 [[ÍNDICE]](#sueños-por-editar)
 
 
-< aP > destroza tu habitación, o proboca que otro destrozen tu habitación para estafar al seguro.
+< aP > destroza tu habitación, o prvoca que otro destrozen tu habitación para estafar al seguro.
 Vas al Hotel Plaza con < aB > a una discoteca.
 Aparcas el coche y vas a la entrada de la parte de abajo.
 
@@ -360,7 +358,7 @@ PAM ! Lo tumbas.
 
 - Ahora se lo diré a la policía
 
-Piensas que se lo merecía. Que aceptas si hay consecuencias.
+Piensas que se lo merecía, que aceptas si hay consecuencias.
 Te subes en un coche con más gente.
 
 Tú, fuera! - dice el agente de policía.
