@@ -38,7 +38,8 @@ Coges el arroz 3 delicias, lo masticas ...
 Piensas en hablar con la compañera, por que después de la jornada íbais a ir de viaje.
 Es por ello que tienes la intención de finjir que no te has enterado de nada, para que nada cambie.
 
-Hablas con ella fuera del recinto. Le dices que vas dentro a por un pitillo y ella se pone nerviosa (no quiere que descubras el negocio clandestino), se convierte en <aCM> durante un rato.
+Hablas con ella fuera del recinto. Le dices que vas dentro a por un pitillo y ella se pone nerviosa (no quiere que descubras el negocio clandestino).
+Se convierte en <aCM> durante un rato.
 Intenta cambiar de tema y que no entres al trapo.
 Le sigues el rollo.
 
@@ -214,7 +215,7 @@ Yendo al supermercado acabas comprando zumo de naranja, lambrusco y algo más.
 En la cola hay mucha gente.
 Te indican donde ir pero un tipo se cabrea, te dice de cambiar de sitios. Tú le espetas
 
-- Eh, no os mováis. Que se quede tal como está, menos lio.
+- Eh, no os mováis. Quedémonos tal como estamos, menos lio.
 
 Hablas mucho con < eB >.
 Temas insulsos y trabajo. Sin embargo:
@@ -292,7 +293,7 @@ De repente llega el ministro de turismo de dinamarca.
 Como ese local está muy hecho polvo, empieza a traer cosas.
 Pantallas, material ...
 
-Se justifica: 'Si es que el miniserio de dinamarca es corrupto. Nadie se va a dar cuenta.'
+Se justifica: 'Si es que el miniserio de dinamarca está corrupto. Nadie se va a dar cuenta.'
 
 Diremos que lo pasaremos por estas partidas, no se que ...
 
@@ -338,7 +339,7 @@ Algunos de ellos son colegas de < hA > del master de MDR.
 
 - A ver si sabes hacer un nosequé con las esposas
 
-Tú callas y observas. Le das las esposas y se pone a hacer cosas. Hacer formas, movimientos ... y poco a poco lo va consiguiendo y hace una cosa similar al nosequé.
+Tú callas y observas. Le das las esposas y se pone a hacer cosas. Hace formas, movimientos ... y poco a poco va consiguiendo hacer algo similar a 'eso'.
 Os sorprende y le dáis la enhorabuena.
 Le explicáis más sobre el nosequé
 
@@ -375,7 +376,9 @@ Tú, fuera! - dice el agente de policía.
 Entran dos policías en el asiento, uno de ellos en el asiento del copiloto.
 Pensamos que va a ser un interrogatorio, pero ordena que arranquemos el coche y circulemos con ellos dentro.
 
-- Caballero - dice el agente dirigiéndose a < PP > - cuando ha pasad el suceso allí en su casa ¿(aquí debería haber una pregunta pero sólo imaginaste el concepto de pregunta)?
+- Caballero - dice el agente dirigiéndose a < PP > - cuando ha pasad el suceso allí en su casa, ¿...?
+
+> aquí debería haber una pregunta pero sólo imaginaste el concepto de pregunta
 
 - No no, esto que dices no ha pasado en mi casa - dice < PP > - ha habido un incidente pero aquí en el hotel plaza
 
@@ -383,11 +386,11 @@ Pensamos que va a ser un interrogatorio, pero ordena que arranquemos el coche y 
 
 - El chaval este es un matao. Siempre va pasado y me ha probocado él
 
-Uno de los agentes recibe una llamada en el walkie talkie y sale una mano sin cuerpo del walkie señalando hacia el oeste, por que el agente está mirando hacia el piloto, que está al este! 
+Uno de los agentes recibe una llamada en el walkie talkie y sale una mano sin cuerpo del walkie señalando hacia el oeste. Pero el agente está mirando hacia el piloto, que está al este! 
 
 Miras y hay una nube enorme con forma de castillo ... es una explosión de alguien que sabía hacer magia.
 
-Piensas: claro ... se han llevado detenido a este chaval a la comisaría y a venído <sPP>, que es más figura, y ha hecho magia y lo a liberado. Observas el espectáculo ... tiene su encanto
+Piensas: claro ... se han llevado detenido a este chaval a la comisaría y a venído < sPP >, que es aún más figura que él, y ha hecho magia y lo a liberado. Observas el espectáculo ... tiene su encanto
 
 
 
