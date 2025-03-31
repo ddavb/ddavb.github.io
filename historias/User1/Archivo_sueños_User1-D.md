@@ -9,7 +9,7 @@
 
 ## 30/03/2025 Ultrasueño
 
-[Drus](./historias/User-2-link-ultrasueño.md)
+[Drus](./historias/User_2_link_ultrasueño.md)
 
 [[ÍNDICE]](#sueños-por-editar)
 
