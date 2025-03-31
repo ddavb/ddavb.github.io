@@ -9,9 +9,68 @@
 
 [[ÍNDICE]](#sueños-por-editar)
 
+> Este sueño se divide en cuatro secciones que realmente no recuerdas el orden, pero estaría guapo que fueran así. Pertenecen al mismo sueño, eso lo sé. Me he perdido intentando recorar la linea temporal que relamente fué ... pero soy incapaz. Quizá no existió (na es broma). Bueno, he decidido contarlo así. Indico los cortes igualmente en el orden que lo fui recordando originalmente
 
 
-Estas en el campo y quieres ir y cruzarlo. Justo acaba de anochecer.
+
+## corte 2
+
+Estas en tu jardín y un niño ha tirado algo dentro. Las dimensiones del jardín son inferiores a las reales.
+Y claro, como lo ves como entrado, estan sus padres también, le dices tranquilo: pasa, pasa; recogía lo suyo y eran cactus, había tirado un cactus, pero en ese lapso del tiempo había hechado raíz, y los estabas recogiendo tu.
+
+Te fijas y te has empezado a clavar los pinchos en las rodillas.
+Te los vas sacando, son super largas y tienes las rodillas llenas de los pinchos.
+Tus rodillas parecen un cactus.
+No te dolía pero notabas el pincho salir de dentro tuyo.
+
+## corte 3
+
+estuve en el Zurdo, que es el bar de carretera de Santa Madalena, que no se llama Zurdo, se llama Cavicent, que ya cerró, y estaba con, joder, era como si estuviera en Santa Madalena, estaba ahí gente,
+
+recuerdo la cafetería, que tenía monedas, y algunas eran falsas, entonces digo, no, aunque aquí es un sitio que tengo cariño, pues no voy a pagar, y que hablaron, no sé por qué, de ir a putas (quizá una conversación de los sitios que he visto de Santa, que son un poco turbios), 
+
+creo que después de ese bar, es cuando ya me fui, y quise saltar, lo que te he dicho de los chalets,
+y bueno, siguiendo las ovejas, iba alguien conmigo, y de repente sumo y buscamos la vida, y la sensación que teníamos era, esto ya lo hemos hecho antes, o sea, ya fuimos por el campo, siendo niños, y acabamos en un sitio, y nos acostumbramos, pero podemos salir de ahí, y volver otra vez a ser nómadas, por ejemplo, yo me acuerdo, que las ovejas saben dónde ir, y sobreviven por el campo, entonces las voy a seguir, porque así sobrevivo, y alguien me sigue detrás, de mis amigos, que también solían hacer esto, pero pasa, que hizo, creo que me debía, me dio, se acercó y me abrazó, pero eso era como pegar, y me dijo, de lo de,
+
+
+## Corte 4
+
+Vas a la carcel y te dejan entrar.
+Ahí esta un amigo íntimo tuyo cumpliendo condena.
+Entras por un pasillo y todo está lleno de celdas ocupadas por otras personas.
+Tienen puertas de cristal y entre ellas se separan con barrotes.
+Las celdas deben ocupar 2 metros cuadrados. Son pequeñas y no les dejan salir. No tienen ninguna distracción.
+Llegas delante de la celda acompañado de más amigos y sientes la desolación de la condena de esa gente
+Os sentáis .
+
+> Wow, lo siento tío, la cárcel es una puta mierda, tío, yo lo siento por tí, joder - empatizás con los presos, sentís una pena tremenda.
+
+Os sentáis ahí hacer convoy, y echar mano aunque sea como distracción y que fuera más leve para ellos.
+
+> No está permitido sentarse en los pasillos de las cárceles - dice la policía por megafono
+
+Claro, pues estáis un ratito sentados pero os leventáis enseguida.
+
+Te fijas y tienes unas tijeras en el bolsillo.
+Te empiezas a acojonar porque claro, si te pillan, pensarán que has intentando colar algo para que se escapen los presos o algo.
+no sé, bueno, vas a una ducha para esconder esas tijeras, y, 
+
+...
+
+y cuando sales ha habido una masacre ...
+
+Ha habido alguien que ha clavado unas tijeras a mucha gente. Algunos de ellos han sobrevivido, pero nadie ha visto quien ha sido.
+Al salir, pues, ves los familiares de los heridos ahí, en plan, "ay, que me iban a matar"
+Ves esa escena como si fuera una película.
+Ves la escena repetida, cambiando la actuación de la gente.
+El prota principal es R, un chabal del pueblo yestas pensnd: es mas tonto, es super tonto, que tonto que es. Encima ni es un actor, porque mira, (vuelvo a ver la escena) y notas como cuando va a beber, en verdad no bebe, y se nota mucho, y piensas un poco sobre la vida de esta persona. Que tiene suerte y encima es actor "famoso". en verdad que suerte que se ha ganado la vida, y es famoso, pero, pero, que tonto que es, que tonto es.
+Encima te está acusando de la masacre de forma teatral
+
+Ahí es cuando dices, tío, me piro. Te vas al campo.
+
+## corte 1
+
+Estas en un pueblo en medio del campo y quieres cruzarlo. Justo acaba de anochecer.
 
 ... pero ir inmediatamente.
 
@@ -40,31 +99,12 @@ Sigues tu camino, tienes que saltar un desnivel a la altura de tu pectoral. Ella
 
 y ya me voy, y empiezo a ver si va a encontrar, esta gente sabe,
 
-yo tengo que ir por ahí, tenía, iba con alguien, con alguien, ahí, y creo que antes 
-
--- -- -- reordenado:
+yo tengo que ir por ahí, tenía, iba con alguien, con alguien, ahí, y creo que antes ...  cortes 2 - 3 y 4
 
 
-Estoy en mi jardín, y un niño había tirado algo, y claro, lo vi como entrado, y estaban sus padres, y yo, tranquilo, pasa, pasa, y los cogía y eran cactus, habían tirado cactus, pero habían plantado ya, no se habían hecho raíz, y los estaba cogiendo yo, y yo me fijo que me había empezado a clavar los puntes, yo, no sé por qué, en las rodillas, y me iba sacando, ellas si eran super largas, mis rodillas parecían un cactus, pero no, no me dolía, o sea sí, pero no me dolía, y no sé, bueno, esto era antes,
 
-estuve en el Zurdo, que es el bar de carretera de Santa Madalena, que no se llama Zurdo, se llama Cavicent, que ya cerró, y estaba con, joder, era como si estuviera en Santa Madalena, estaba ahí gente,
 
-recuerdo la cafetería, que tenía monedas, y algunas eran falsas, entonces digo, no, aunque aquí es un sitio que tengo cariño, pues no voy a pagar, y que hablaron, no sé por qué, de ir a putas (quizá una conversación de los sitios que he visto de Santa, que son un poco turbios), 
-
-creo que después de ese bar, es cuando ya me fui, y quise saltar, lo que te he dicho de los chalets,
-y bueno, siguiendo las ovejas, iba alguien conmigo, y de repente sumo y buscamos la vida, y la sensación que teníamos era, esto ya lo hemos hecho antes, o sea, ya fuimos por el campo, siendo niños, y acabamos en un sitio, y nos acostumbramos, pero podemos salir de ahí, y volver otra vez a ser nómadas, por ejemplo, yo me acuerdo, que las ovejas saben dónde ir, y sobreviven por el campo, entonces las voy a seguir, porque así sobrevivo, y alguien me sigue detrás, de mis amigos, que también solían hacer esto, pero pasa, que hizo, creo que me debía, me dio, se acercó y me abrazó, pero eso era como pegar, y me dijo, de lo de,
-
-ostia, he soñado que iba a la cárcel, iba a ver a la cárcel, y estaba en la cárcel, y me dejaban entrar, y ahí estaba un amigo, o sea, alguien íntimo mío, íntimo mío, y al lado habían otras gentes, estaban seguidas, y era, se podía ver todo detrás, y eran muy pequeñitas, y yo llegaba allí, iba con mi amigo, iba con más gente, nos sentábamos fuera, como delante de las celdas
-
-les decíamos, tío, es, wow, lo siento, la cárcel es para de una puta mierda, tío, yo lo siento, joder, pero, o sea, que sentíamos que eso era una mierda, que hubiéramos hecho nosotros algo malo, entonces nos sentamos ahí como para hacer combo y echar mano, y que fuera más leve para ellos, y la policía por megafono nos ha permitido sentarse en los pasillos de las cárceles, y claro, pues estuvimos un ratito sentados, pero nos tuvimos que levantar.
-
-yo me fijo que tenía yo unas tijeras en el bolsillo, y yo me empecé a acojonar, porque claro, si me pillan, pensarán que estaba intentando colar algo para que ellos se escapen los presos o algo, no sé, bueno, y voy a una ducha, y esconder esas, esas, esas, esas tijeras, y, 
-
-...
-
-y cuando salgo había habido una masacre, o sea, había habido alguien que había clavado unas tijeras para mucha gente, y algunos habían sobrevivido, pero nadie había visto quiénes eran, y al salir yo, pues, con los familiares ahí, en plan, ay, que me mataba, ¿sabes qué?, y esa escena, pero como si fuera una película, ¿sabes?, la voy viendo, la escena como, como cambia, y yo pensando este, un toque es, un toque es, encima ni es un actor, porque mira, vuelvo a ver la imagen y es como cuando va a hacer así para beber, en verdad no bebe, y se nota mucho, y yo hasta pensando un poco sobre la vida de Rubén, que suerte tiene que es actor, porque esto de ahora es como si fuera, lo estaba viviendo como si fuera una escena, una película, lo que, lo que estaba haciendo Rubén, y es actor, y en verdad que suerte que se ha ganado la vida, y es famoso, pero, pero, que tonto que es,
-
-Ahí es cuando digo, tío, me piro. Y te vas al campo.
+## Corte 5
 
 entonces, por aquella casa, y seguía las ovejas, y me quedé, es que luego no sé si fue Rubén que me siguió, pero, o no, fue alguien que quería, el mito de eso es como, me abrazó alguien, tenía apego, entonces, no sé, fuera de viaje, y fui a acercarme a las ovejas, vale, creo que esa gente era Alvarín, entonces yo me voy, y hay una valla electrificada, que no puedo pasar, y ya pensando yo, me dirá, pero que hace, o sea, que has vuelto, me dirá eso, total, que veo que hay una puerta en la valla electrificada, y mientras entran las cabras, voy a una caseta, todo abierto, porque era barro no llorar, y ya tienen castaña, y voy ahí a comprar castaña, y me acerco, y me dice, ¿cuánto quieres?, y yo estaba pensando en 200 gramos
 
