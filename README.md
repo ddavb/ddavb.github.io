@@ -6,11 +6,13 @@ La idiosincrásia de este proceso de escritura gratuito incluye poca dedicación
 
 # AGRUPACIONES:
 
-[C - agrupación](./historia/Archivo_sueños_User1C.md)
+[D - agrupación](./historia/Archivo_sueños_User1-D.md)
 
-[B - agrupación](./historia/Archivo_sueños_User1B.md)
+[C - agrupación](./historia/Archivo_sueños_User1-C.md)
 
-[A - agrupación](./historia/Archivo_sueños_User1A.md)
+[B - agrupación](./historia/Archivo_sueños_User1-B.md)
+
+[A - agrupación](./historia/Archivo_sueños_User1-A.md)
 
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/7AA.png)
