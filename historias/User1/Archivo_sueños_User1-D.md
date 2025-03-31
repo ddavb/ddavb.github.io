@@ -15,22 +15,28 @@
 
 ## corte 2
 
-Estas en tu jardín y un niño ha tirado algo dentro. Las dimensiones del jardín son inferiores a las reales.
-Y claro, como lo ves como entrado, estan sus padres también, le dices tranquilo: pasa, pasa; recogía lo suyo y eran cactus, había tirado un cactus, pero en ese lapso del tiempo había hechado raíz, y los estabas recogiendo tu.
+Estas en el jardín de tu casa y un niño ha tirado algo dentro. Las dimensiones del jardín son inferiores a las reales.
+Y claro, como lo ves como entrado, y estan sus padres también, le dices: tranquilo, pasa, pasa; recoje lo suyo. Son cactus, había tirado un cactus y en ese lapso del tiempo habían hechado raíz; y los estabas recogiendo tu.
 
-Te fijas y te has empezado a clavar los pinchos en las rodillas.
+Te fijas y te has clavado pinchos en las rodillas.
 Te los vas sacando, son super largas y tienes las rodillas llenas de los pinchos.
 Tus rodillas parecen un cactus.
-No te dolía pero notabas el pincho salir de dentro tuyo.
+No te duele pero notabas el pincho salir de dentro tuyo. piensan en si te hace daño
 
 ## corte 3
 
-estuve en el Zurdo, que es el bar de carretera de Santa Madalena, que no se llama Zurdo, se llama Cavicent, que ya cerró, y estaba con, joder, era como si estuviera en Santa Madalena, estaba ahí gente,
+estas en el Zurdo, que es el bar de carretera de Santa Madalena, que no se llama Zurdo, se llama CaVicent. Te sorprende pq está habierto y el bar cerró hace tiempo. 
+Es como si estuviera en Santa Madalena, estaba ahí gente que recuerdas del pasado,
 
-recuerdo la cafetería, que tenía monedas, y algunas eran falsas, entonces digo, no, aunque aquí es un sitio que tengo cariño, pues no voy a pagar, y que hablaron, no sé por qué, de ir a putas (quizá una conversación de los sitios que he visto de Santa, que son un poco turbios), 
+Te hacercas a la barra (el lugar es muy distorsionado al real) es tipo cafetería.
+pides quizá un café. rebuscas en el bolsillo derecho y sacas monedas, algunas son falsas. fantaseas con pagar con esas monedas pero no, este es un sitio que tengo cariño.
+esta sentado en una mesa Acaldch y os saludais
+
+en un ambiente jocoso alguien habla de ir de putas (quizá una conversación de los sitios que he visto de Santa, que son un poco turbios), 
 
 creo que después de ese bar, es cuando ya me fui, y quise saltar, lo que te he dicho de los chalets,
-y bueno, siguiendo las ovejas, iba alguien conmigo, y de repente sumo y buscamos la vida, y la sensación que teníamos era, esto ya lo hemos hecho antes, o sea, ya fuimos por el campo, siendo niños, y acabamos en un sitio, y nos acostumbramos, pero podemos salir de ahí, y volver otra vez a ser nómadas, por ejemplo, yo me acuerdo, que las ovejas saben dónde ir, y sobreviven por el campo, entonces las voy a seguir, porque así sobrevivo, y alguien me sigue detrás, de mis amigos, que también solían hacer esto, pero pasa, que hizo, creo que me debía, me dio, se acercó y me abrazó, pero eso era como pegar, y me dijo, de lo de,
+
+- sin embargo lo paso a otro corte porq quizá viene:
 
 
 ## Corte 4
@@ -67,6 +73,10 @@ El prota principal es R, un chabal del pueblo yestas pensnd: es mas tonto, es su
 Encima te está acusando de la masacre de forma teatral
 
 Ahí es cuando dices, tío, me piro. Te vas al campo.
+
+## corte x
+
+y bueno, siguiendo las ovejas, iba alguien conmigo, y de repente sumo y buscamos la vida, y la sensación que teníamos era, esto ya lo hemos hecho antes, o sea, ya fuimos por el campo, siendo niños, y acabamos en un sitio, y nos acostumbramos, pero podemos salir de ahí, y volver otra vez a ser nómadas, por ejemplo, yo me acuerdo, que las ovejas saben dónde ir, y sobreviven por el campo, entonces las voy a seguir, porque así sobrevivo, y alguien me sigue detrás, de mis amigos, que también solían hacer esto, pero pasa, que hizo, creo que me debía, me dio, se acercó y me abrazó, pero eso era como pegar, y me dijo, de lo de,
 
 ## corte 1
 
