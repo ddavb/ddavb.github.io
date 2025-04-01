@@ -12,7 +12,7 @@
 
 [[ÍNDICE]](#sueños-por-editar)
 
-> Este sueño se divide en cuatro secciones que realmente no recuerdas el orden, pero estaría guapo que fueran así. Pertenecen al mismo sueño, eso lo sé. Me he perdido intentando recorar la linea temporal que relamente fué ... pero soy incapaz. Quizá no existió (na es broma). Bueno, he decidido contarlo así. Indico los cortes igualmente en el orden que lo fui recordando originalmente
+> Este sueño se divide en varios cortes que realmente no recuerdas el orden y pertenecen al mismo sueño, eso lo sé. Me he perdido intentando recorar la linea temporal que relamente fué ... pero soy incapaz. Quizá no existió (na es broma). Bueno, he decidido contarlo así. Indico los cortes igualmente en el orden que lo fui recordando originalmente
 
 
 
@@ -28,11 +28,12 @@ No te duele pero notabas el pincho salir de dentro tuyo. piensan en si te hace d
 
 ## corte 3
 
-estas en el Zurdo, que es el bar de carretera de Santa Madalena, que no se llama Zurdo, se llama CaVicent. Te sorprende pq está habierto y el bar cerró hace tiempo. 
+estas en el Zurdo, que es el bar de carretera de Santa Madalena, que no se llama Zurdo, se llama CaVicent.
+Te sorprende pq está habierto y el bar cerró hace tiempo. 
 Es como si estuviera en Santa Madalena, estaba ahí gente que recuerdas del pasado,
 
 Te hacercas a la barra (el lugar es muy distorsionado al real) es tipo cafetería.
-pides quizá un café. rebuscas en el bolsillo derecho y sacas monedas, algunas son falsas. fantaseas con pagar con esas monedas pero no, este es un sitio que tengo cariño.
+pides quizá un café. rebuscas en el bolsillo derecho y sacas monedas, algunas son falsas. fantaseas con pagar con esas monedas pero ahí no, es un sitio que tengo cariño.
 esta sentado en una mesa Acaldch y os saludais
 
 en un ambiente jocoso alguien habla de ir de putas (quizá una conversación de los sitios que he visto de Santa, que son un poco turbios), 
@@ -83,7 +84,7 @@ y bueno, siguiendo las ovejas, iba alguien conmigo, y de repente sumo y buscamos
 
 ## corte 1
 
-Estas en un pueblo en medio del campo y quieres cruzarlo. Justo acaba de anochecer.
+Estas en un pueblo en medio del campo y quieres cruzarlo. Justo acaba de anochecer. Estás andando solo.
 
 ... pero ir inmediatamente.
 
@@ -112,14 +113,13 @@ Sigues tu camino, tienes que saltar un desnivel a la altura de tu pectoral. Ella
 
 y ya me voy, y empiezo a ver si va a encontrar, esta gente sabe,
 
-yo tengo que ir por ahí, tenía, iba con alguien, con alguien, ahí, y creo que antes ...  cortes 2 - 3 y 4
+yo tengo que ir por ahí, tenía, iba con alguien, con alguien, ahí, y creo que antes ...
 
-
-
+¿cortes 2 - 3 y 4?
 
 ## Corte 5
 
-entonces, por aquella casa, y seguía las ovejas, y me quedé, es que luego no sé si fue Rubén que me siguió, pero, o no, fue alguien que quería, el mito de eso es como, me abrazó alguien, tenía apego, entonces, no sé, fuera de viaje, y fui a acercarme a las ovejas, vale, creo que esa gente era Alvarín, entonces yo me voy, y hay una valla electrificada, que no puedo pasar, y ya pensando yo, me dirá, pero que hace, o sea, que has vuelto, me dirá eso, total, que veo que hay una puerta en la valla electrificada, y mientras entran las cabras, voy a una caseta, todo abierto, porque era barro no llorar, y ya tienen castaña, y voy ahí a comprar castaña, y me acerco, y me dice, ¿cuánto quieres?, y yo estaba pensando en 200 gramos
+... entonces yo me voy, y hay una valla electrificada, que no puedo pasar, y ya pensando yo, me dirá, pero que haces, o sea, que has vuelto, me dirá eso, total, que veo que hay una puerta en la valla electrificada, y mientras entran las cabras, voy a una caseta, todo abierto, porque era barro no llorar, y ya tienen castaña, y voy ahí a comprar castaña, y me acerco, y me dice, ¿cuánto quieres?, y yo estaba pensando en 200 gramos
 
 mía, que era el pastor, y le dice, ponme dos de castañas, aunque yo le digo un poco, y me dice algo, me da un euro, y yo me quedo así con cara de tonto, y le doy dos, y me dice que le pague solo uno por 24 castañas, pero yo estaba rey a las castañas, y viene la hija de aquel, que estaba con él vendiendo castañas,
 
