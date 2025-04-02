@@ -12,7 +12,7 @@
 
 [[ÍNDICE]](#sueños-por-editar)
 
-> Este sueño se divide en varios cortes que realmente no recuerdas el orden y pertenecen al mismo sueño, eso lo sé. Me he perdido intentando recorar la linea temporal que relamente fué ... pero soy incapaz. Quizá no existió (na es broma). Bueno, he decidido contarlo así. Indico los cortes igualmente en el orden que lo fui recordando originalmente
+> Este sueño se divide en varios cortes que realmente no recuerdas el orden. Me he perdido intentando recorar la linea temporal que realmente fué ... pero soy incapaz. Quizá no existió (na es broma). Bueno, he decidido contarlo así. Indico los cortes igualmente en el orden que lo fui recordando originalmente
 
 
 
