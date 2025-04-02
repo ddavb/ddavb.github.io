@@ -18,21 +18,23 @@
 
 ## corte 2
 
-Estas en el jardín de tu casa y un niño ha tirado algo dentro. Las dimensiones del jardín son inferiores a las reales.
-Y claro, como lo ves como entrado, y estan sus padres también, le dices: tranquilo, pasa, pasa; recoje lo suyo. Son cactus, había tirado un cactus y en ese lapso del tiempo habían hechado raíz; y los estabas recogiendo tu.
+Estas en el jardín de tu casa, las dimensiones no son las reales, el jard'in es m'as peque~no, y un niño ha tirado algo dentro.
+Y claro, lo ves como entrado, estando sus padres también por ah'i, le dices: tranquilo, pasa, pasa; 'el recoje lo suyo.
+Eran cactus. Había tirado un cactus y en ese lapso del tiempo habían hechado raíz; y los estabas recogiendo tu.
 
 Te fijas y te has clavado pinchos en las rodillas.
-Te los vas sacando, son super largas y tienes las rodillas llenas de los pinchos.
+Te los vas sacando. Son super largas. Tienes las rodillas llenas de los pinchos.
 Tus rodillas parecen un cactus.
-No te duele pero notabas el pincho salir de dentro tuyo. piensan en si te hace daño
+No te duele pero notabas el pincho salir de dentro tuyo.
+Lo piensas, ?te hace daño?
 
 ## corte 3
 
-estas en el Zurdo, que es el bar de carretera de Santa Madalena, que no se llama Zurdo, se llama CaVicent.
-Te sorprende pq está habierto y el bar cerró hace tiempo. 
-Es como si estuviera en Santa Madalena, estaba ahí gente que recuerdas del pasado,
+Acabas de entrar en el Zurdo, que es el bar de carretera de Santa Madalena, que no se llama Zurdo, se llama Ca`Vicent.
+Te sorprende pq está abierto y ese bar de carretera cerró hace tiempo. 
+Es como si estuvieras en Santa Madalena, y ah'i est'a la gente que recuerdas del pasado.
 
-Te hacercas a la barra (el lugar es muy distorsionado al real) es tipo cafetería.
+Te acercas a la barra (el lugar es muy distorsionado al real) es tipo cafetería.
 pides quizá un café. rebuscas en el bolsillo derecho y sacas monedas, algunas son falsas. fantaseas con pagar con esas monedas pero ahí no, es un sitio que tengo cariño.
 esta sentado en una mesa Acaldch y os saludais
 
