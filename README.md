@@ -14,7 +14,8 @@ Lo expreso a través de poca coherencia textual y faltas de ortografía.
 
 [B - agrupación](./historias/User1/Archivo_sueños_User1-B.md)
 
-[A - agrupación](./historias/User1/As_U1-A/_Agrupación_As_U1-A.md)
+[A - agrupación](.historias\User1\As_U1-A\_Agrupación_As_U1-A.md)
+
 
 
 [asq](./historia/Archivo_asq.md)
