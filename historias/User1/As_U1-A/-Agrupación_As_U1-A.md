@@ -29,6 +29,9 @@
 
 ## Un problema que se resuelve solo 
 
+![date Un problema que se resuelve solo]()
+
+
 [[ÍNDICE]](#sueños-por-editar)
 
 En un difuso inicio, estáss cachondo y de camino a tu pueblo.
