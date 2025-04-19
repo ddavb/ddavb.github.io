@@ -15,14 +15,14 @@
 
 ## 07/09/2024 Molestias
 
-![07/09/2024 Molestias](07.09.2024-molestias.md)
+![07/09/2024 Molestias](#07092024-molestias)
 
 
 [[ÍNDICE]](#sueños-por-editar)
 
 ## 29/08/2024 Las rotondas son el mal y un matón
 
-![29/08/2024 Las rotondas son el mal y un matón](29.08.2024_Las_rotondas_add.md)
+![29/08/2024 Las rotondas son el mal y un matón](#29082024-las-rotondas-son-el-mal-y-un-matón)
 
 
 [[ÍNDICE]](#sueños-por-editar)
