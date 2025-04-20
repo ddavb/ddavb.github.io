@@ -1,3 +1,7 @@
+## 07/09/2024 Molestias
+
+[[ÍNDICE]](#sueños-por-editar)
+
 Una noche pescando con < aJ >, le insistes en que tiene que regular la presión de las ruedas del coche.
 A pesar de argumentartee que estás equivocado, lo hace y se da cuenta de que ahora es más feliz.
 
@@ -30,3 +34,5 @@ Cuando se fuerno las luces se vió la luna con claridad.
 Aunque no te fijaste en la luna hasta que paso todo esto, te molestó el comercial.
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/idea2.png)
+
+

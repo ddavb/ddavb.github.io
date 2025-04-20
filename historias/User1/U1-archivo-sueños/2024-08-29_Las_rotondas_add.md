@@ -1,3 +1,5 @@
+## 2024/08/29 Las rotondas son el mal y un matón
+
 Estás con < aJ > pegandoos en broma cuando de repente, conduciendo en coche por la rotonda de la raya del terme, pierdes el control (creo) y tienes un accidente multiple.
 
 A pesar del impacto intentas salir conduciendo de la rotonda.

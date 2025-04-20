@@ -1,0 +1,82 @@
+## 18.09.2024 Haz cola para recordar
+
+[[ÍNDICE]](#sueños-por-editar)
+
+Caminando por la av. papa luna ves de lejos a < R-MIR >.
+Ella también te ha visto pero no quieres saludarla hasta estar cerca.
+Ella está buscando algo por el suelo ...
+
+- Pues es que me tendría que haber llegado un coche pero por tamaño no lo han podido dejar - dice
+
+La calle está desierta y todos los aparcamientos son zona para el autobús y zona amarilla
+
+Asumes que no puedes ayudar y te vas.
+Cuando lleguas a ticana, entras.
+Ticana es diferente ... és una oficina del ayuntamiento y con alma de pescadería.
+Hay que cojer tiket y está toda la sala llena.
+También las ventanillas para atender a la gente.
+La gente coje los tikets de 4 en 4 y tú también lo haces cuando se te acaba la amabilidad y ves la oportunidad de poner la mano para arrancar de cuajo un fajo de tickets.
+
+> Esto no lo recuerdo, pero cantan los turnos de forma así:
+>
+> - El dos
+>
+> - El cuatro y el 5
+>
+> - El 3, el 7 y el 8
+>
+> - El 2 y el tres
+
+Te lanzas a una ventanilla que estas vacía y dices: YO!
+Menudo espectáculo piensas.
+Te fijas en quién te atenderá en esa ventanilla, y es Rocío, la youtuber gata de Schrödinger .
+
+- ¿Qué tal?, ¿qué alegría no? de ser *medio trabajador parcial de timpo completo*
+
+> A tí te sorprende que supiera eso, pero claro, tiene la base de datos de tu vida laboral en el ordenador.
+
+- Eso es equivalente a un B2 de inglés - te dice
+
+- Sí, es una pena que no haya hecho los exámenes por que ahora tendría el título. Creo que tienes el B1. O ni eso tampoco, no lo recuerdo. - dices tímido
+Ella te da a entender que valoraba lo práctico antes que un título.
+
+Habláis de la orquesta por tus datos laborales, pero ella te conocía de más cosas ...
+De un concierto del que comienzas a recordar ...
+El concierto salió en la tele y habían más grupos.
+estás contento por que te conozca y te recuerde de ese concierto, aunque te da un poco de pena que sea por la orquesta y no por algún grupo guay que tuviste.
+Te hubiera gustado que te dijera: sí te vi con < PD > tocando < Me-voy-a-comprar-unos-Chetoos>
+
+> Le empezas a contar cosas de ese día, te sale de dentro.
+
+- Pues el fragmento del concierto que salió en la tele, que va previo al fragmento del concierto de Lèpoka, va de la orquesta < SM >. - dices mientras ella hace muecas para transmitirme que ya lo sabe. Tu sigues con un: pero podría haber sido de << Dale Pomada >>, pero por tonterías no lo fué.
+
+> Aquí le cuento una história que te hace perder el hilo del sueño:
+
+En ese momento todo a ti alrededor cambia.
+te encuentras reviviendo un recuerdo de un día con << aP >>, donde visitásteis el lugar/escenario del concierto para valorar si tocar o no ahí. La diferencia con el recuerdo "verdadero" es ...
+
+> Ese recuerdo en la vida real nunca existió, pero en el sueño lo vivo como un recuerdo
+
+... es que ahora, miestras revives el recuerdo en primera persona, tú tienes un movil en la mano mientras se o estás contando a la gata de S en una llamada.
+
+
+El lugar era un poco chungo. A las afueras de una nave medio derruida, con descampado por los alrededores y desniveles con arena y cables y vigas tirados de cualquier manera.
+Eh, pero qué colores ... verde, celeste, esmeralda, grafitis en las paredes, canela de la arena, gris azulado por los postes de electricidad ...
+
+Tu por teléfono ya has dicho que al final no tocasteis por que a << zapatero >> no le pareció buena idea.
+Que podríamos haber grabado todo con video y audio y que va una pena no habernos puesto de acuerdo.
+< aP > asentía con ímpetu.
+
+Mientras revives el recuerdo, a << aP >> y a ti os da un poco de rabia porq sí que os habría gustado tocar.
+Váis caminando por el lugar en cuestión, con un pedo tremendo.
+Bajando por un desnivel, << aP >> da un par de volteretas espectaculares, apoyando el abdomen en una viga y bajando varios pisos de una.
+Tú tienes que hacer lo mismo, pero con la borrachera vas con sumo cuidado, a cuatro patas y despacito.
+A mitad de la distancia te caes de espaldas.
+El suelo está cerca y es como caer de una hamaca encima de la suave arena.
+El resto de desnivel lo bajas como si fuera un tobogán.
+
+Mientras seguís caminando, poco a poco Vas abriendo los ojos secos por no haber bebido suficiente agua
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/playa.png)
+
+

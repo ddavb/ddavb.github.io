@@ -1,16 +1,7 @@
-# SUEÑOS por editar
-
-   - [Ultrasueño](#30032025-ultrasueño)
-   
-
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.png)
-
-
 ## 30/03/2025 Ultrasueño
 
-[Druss](./historias/User2/User_2_link_ultrasueño.md)
+- [User2 - link Ultrasueño](/historias/User2/User_2_link_ultrasueño.md)
 
-[[ÍNDICE]](#sueños-por-editar)
 
 > Este sueño se divide en varios cortes que realmente no recuerdas el orden. Me he perdido intentando recorar la linea temporal que realmente fué ... pero soy incapaz. Quizá no existió (na es broma). Bueno, he decidido contarlo así. Indico los cortes igualmente en el orden que lo fui recordando originalmente
 

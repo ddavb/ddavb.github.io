@@ -8,21 +8,19 @@ Lo expreso a través de poca coherencia textual y faltas de ortografía.
 
 # AGRUPACIONES:
 
-[D - agrupación](./historias/User1/Archivo_sueños_User1-D.md)
+[User1-archivo-sueños](./historias/User1/-All_U1-As.md)
 
-[C - agrupación](./historias/User1/Archivo_sueños_User1-C.md)
+- to do: the best
 
-[B - agrupación](./historias/User1/Archivo_sueños_User1-B.md)
-
-[A - agrupación](./historias/User1/As_U1-A/-Agrupación_As_U1-A.md)
-
-
-
-[asq](./historia/Archivo_asq.md)
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/7AA.png)
 
 
-[Ilustraciones - photo edit](./ilustraciones.md)
+    [Ilustraciones - photo edit](./ilustraciones.md)
 
-[D - to do](./historias/User1/Archivo_sueños_User1-D-to-do.md)
+    [to do U1-As](./historias/User1/-to-do_U1-As.md)
+
+    [asq](./historia/Archivo_asq.md)
+
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.png)

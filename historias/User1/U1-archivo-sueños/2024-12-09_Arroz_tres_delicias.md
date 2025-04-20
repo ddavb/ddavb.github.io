@@ -1,0 +1,63 @@
+## 9/12/2024 Arroz tres delicias
+
+[[ÍNDICE]](#sueños-por-editar)
+
+Estas trabajando en un supermercado chino de alimentación.
+Estáis cerrando y es hora de salir.
+Se apagan las luces y ves que empieza a entrar mucha gente de estrangis por la puerta principal.
+"¿De donde **** sale esta gente?"
+
+Te escondes, reptas por el suelo para que no te vean.
+Es decir, tu trabajas ahí, lo que ocurre te incumbe.
+Te interesa saber quien ha abierto de forma clandestina la puerta, y también si eso es habitual.
+Descubres que es una compañera tuya del supermercado.
+
+Aprovechas para hablar con uno de los extraños de por ahí, que ya se iba
+
+- ¿Que bien esto, no? - dice por decir algo genérico, a ver que dice
+
+- Sii. Compando así sale el arroz muy barato, 10 euros el kilo
+
+Coges el arroz 3 delicias, lo masticas ...
+
+> Ajá, descubres que está sucediendo. Dentro de las bolsas de arroz tres delicias en verdad había otro tipo de arroz diferente que venden de forma clandestina para saltarse controles o bff lo que sea, realmente en el sueño no buscas una justificación lógica.
+
+Piensas en hablar con la compañera, por que después de la jornada íbais a ir de viaje.
+Es por ello que tienes la intención de finjir que no te has enterado de nada, para que nada cambie.
+
+Hablas con ella fuera del recinto. Le dices que vas dentro a por un pitillo y ella se pone nerviosa (no quiere que descubras el negocio clandestino).
+Se convierte en <aCM> durante un rato.
+Intenta cambiar de tema y que no entres al trapo.
+Le sigues el rollo.
+
+Los compradores clandestinos ya han salido, y al vernos con intención de entrar, les entran ganas de comprar más arroz del barato.
+Se supone que no debes saber nada, y ella no quiere que te enteres.
+Se vuelve una situación tensa.
+
+Finalmente ella te dice que vayas dentro a por tabaco, y al ver que finalmente cede, lo dejas pasar y no vas dentro.
+No quieres que la situación con la gente de fuera empeore.
+
+Confiesas, le dices que sabes lo que ocurre dentro. Que no pasa nada.
+Vais a subir a unos coches con chofer (para hacer lo que teníais pensado incialmente)
+y jsuto antes de subir os dais cuanta de que alguien os ha traicionado/delatado
+
+
+Corres!
+Vas con el bajo haciendo malabares para que no se te caiga y sin parar de correr ponertelo en una postura cómoda.
+Llegáis a una calle en obras: andamios, suelo de cemento no del todo seco ...
+Pasáis por un camino dentro de un tunel donde no hay salida, está todo con cemento, pintura y más cosas.
+Preguntáis a los obreros (la compañera te siguió)
+
+- Mm sí, es que este sitio no tiene cédula de habitabilidad. Lo estamos reformando para que nos den el permiso, o no. Nos la jugamos
+
+> Piensas que ese no es un procedimiento legale y que se están saltando la norma, que eso no está en regla
+
+- Pero ¿sabéis que no podéis ...? - recapacitas, recoges cable - ¿... no podéis dejar esto sin pintar?
+
+
+Mira ... Bah! Te pones a trabajar con ellos. Por más que lo intentes ya no se puede evitar que te han descubierto.
+Y tu a ellos.
+
+
+![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3755.png)
+
