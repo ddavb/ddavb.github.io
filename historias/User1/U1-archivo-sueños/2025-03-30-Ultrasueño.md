@@ -1,8 +1,8 @@
 ## 30/03/2025 Ultrasueño
 
->> [User1-archivo-sueños](/historias/User1/-All_U1-As.md)
+[GO BACK (intento, no me sale)](/historias/User1/-All_U1-As.md)
 
->> [User2 - link Ultrasueño](/historias/User2/User_2_link_ultrasueño.md)
+[User2 - link Ultrasueño](/historias/User2/User_2_link_ultrasueño.md)
 
 
 > Este sueño se divide en varios cortes que realmente no recuerdas el orden. Me he perdido intentando recorar la linea temporal que realmente fué ... pero soy incapaz. Quizá no existió (na es broma). Bueno, he decidido contarlo así. Indico los cortes igualmente en el orden que lo fui recordando originalmente
