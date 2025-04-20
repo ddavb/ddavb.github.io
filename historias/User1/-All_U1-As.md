@@ -1,8 +1,10 @@
 # SUEÑOS por editar
 
+   -[to-do]
 
    - [2025/03 Ultrasueño](./U1-archivo-sueños/2025-03-30-Ultrasueño.md)
 
+   -[to-do]
 
 
    - [2024/12 Arroz tres delicias](./U1-archivo-sueños/2024-12-09_Arroz_tres_delicias.md)
@@ -46,6 +48,3 @@
    - [(x) Una partida confusa](./U1-archivo-sueños/_Una_partida_confusa.md)
 
 
-
-
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.png)

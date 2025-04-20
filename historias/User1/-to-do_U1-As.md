@@ -1,12 +1,5 @@
--[N0](#14012025-sueño-lud)
--[N1](#23012025-sueño-ukraina)
--[N2](#25012025-sueño-gatos)
--[N3](#14032025-sueño)
--[N4](#29032025-sueño-lluvia-h)
--[N5](#15042025-sueño)
 
-
-## 14/01/2025 Sueño lud
+## 2025/01/14 Sueño lud
 
 Recuerdo que estaba en un concierto de la Luz Big Band en una nave industrial y estaba en el escenario y yo me estaba preparando como para tocar como si fuera la orquesta y me están explicando cosas y de repente viene Pau y me dice ¿Ya a tocar? Y yo, ¿Ya? Y me dice, sí, hombre. Pero como con la mirada noto que no voy a tocar, ¿sabes? Que van a tocar ellos. Y es como que al principio estaba la posibilidad de que yo tocara alguna canción y tal pero en ese momento fue en plan, no, no.
 
@@ -20,7 +13,7 @@ Era como rayo videoclip. Y en algún momento estoy con Vine y estoy como mirando
 
 Y pasan muchas más cosas pero no me acuerdo, tío.
 
-## 23/01/2025 Sueño ukraina
+## 2025/01/23 Sueño ukraina
 
 Pues estaba con Adri, creo que en la UJI, y la acompañaba y iba a hablar con Zelensky, que estaba ahí como en plan, hombre Adri, no sé qué, qué tal, y Adri trabajaba para ellos y Zelensky le preguntaba cosas así y Adri como era ahí, honesto y confeso. Cosas de informática y es como que les ayudaba, trabajaba para ellos como informático, haciendo cosas. Y Zelensky le pagaba y está como muy agradecido en plan, va, tenemos un buen activo aquí, no sé qué.
 
@@ -32,7 +25,7 @@ Y se ríen, y voy y cojo la leche y la dejo en algún sitio. Y luego creo que ib
 
 Pero era como, bueno, empezó a pensar en Lili, en la gente ucraniana, aquí en España, no sé. Un poco triste también eso. Pero no ha sido triste.
 
-## 25/01/2025 Sueño gatos
+## 2025/01/25 Sueño gatos
 
 No entiendo cómo, pero tenía cuatro gatos. Bueno, mi familia... Bueno, no, estábamos dando vueltas con mi madre por Peñíscola, con el coche, para aparcarlo. Y, bueno, los sitios por donde estábamos eran urbanizaciones, donde había mar y barcos.
 
@@ -58,7 +51,7 @@ Y vino alguien. Una chica. Era como mi hermana, pero no es mi hermana.
 
 Y me abrazó en plan... Jo, yo también. A mí también me da pena. No sé qué... Bueno, se acabó el sueño.
 
-## 14/03/2025 Sueño
+## 2025/03/14 Sueño
 
 No sé exactamente qué estábamos haciendo. Un viaje de algo. Y estábamos encima de una plataforma.
 
@@ -95,7 +88,7 @@ Y fuera había una figurita de Jesús. Y había vitrinas, pero había como unas 
 Y la huelga ya significaba que eso no lo iban a meter dentro de la vitrina.
 
 
-## 29/03/2025 Sueño lluvia H
+## 2025/03/29 Sueño lluvia H
 
 Pues, estaba en tu casa, pero tenía la forma de mi casa y, pero era tu casa, estábamos tú y yo, había un chico más y ahí se ha encendido un peta. Y yo fumo, pero me subió muy lleno. Te lo digo, pero no me hacéis mucho caso.
 
@@ -112,7 +105,7 @@ Y en todas las habitaciones había llovido dentro de la habitación. Y eso pasó
 Y se había taponado esa salida de agua y se había acumulado tanta agua que estaban los techos. Los techos llovían un poquito.
 
 
-## 15/04/2025 Sueño
+## 2025/04/15 Sueño
 
 Soñé que estaba en un sitio chill-out, bar, de estilo playero, con mucha vegetación y no sé si el bar donde servían las cosas era... como una... una caravana antigua que le faltaba un lado, o como que habían adecuado para hacer un bar, o algo así. Y estaba con... un chaval, que no me acuerdo cómo se llama ahora, y se toma un café, y en el momento de pedirlo pasan cosas, hace cosas, y él está hablando con la camarera y le coge unas siete galletas que son redonditas tipo donut, y las iba poniendo dentro del café, y puso unas siete, y luego se puso un poco más de café para que desbordara y el vaso se llenara un poquito más de café, y volvió a poner otra galleta dentro de la taza de café, y era extraño, me hubiera gustado saber la razón. Estaba preguntando cuánto tiempo lleva haciendo esto, y nos vamos de ese bar, y él se queda en una mesa sentado con una persona que... yo no quería estar en esa conversación, entonces les dije, bueno, nada, un placer que me piro, y me fui.
 
