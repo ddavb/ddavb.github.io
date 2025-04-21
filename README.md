@@ -11,6 +11,8 @@ Lo expreso a través de poca coherencia textual y faltas de ortografía.
 
 [User1-archivo-sueños](/historias/User1/-All_U1-As.md)
 
+[User2](/historias/User2/-All_U2-As.md)
+
 - to do: the best
 
 
