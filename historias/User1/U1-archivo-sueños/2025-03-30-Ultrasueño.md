@@ -1,12 +1,10 @@
 ## 30/03/2025 Ultrasueño
 
-[GO BACK (intento, no me sale)](/historias/User1/-All_U1-As.md)
+![alt text](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/Ultrasueño%20krita.PNG)
 
-[User2 - link Ultrasueño](/historias/User2/User_2_link_ultrasueño.md)
+[User2 - link Ultrasueño](/historias/User2/U2-archivo-sueños/2025-03-30_link_ultrasueño.md)
 
-
-> Este sueño se divide en varios cortes que realmente no recuerdas el orden. Me he perdido intentando recorar la linea temporal que realmente fué ... pero soy incapaz. Quizá no existió (na es broma). Bueno, he decidido contarlo así. Indico los cortes igualmente en el orden que lo fui recordando originalmente
-
+> Este sueño se divide en varios cortes que realmente no recuerdas el orden. He decidido contarlo así:
 
 
 ### corte 2
@@ -38,7 +36,7 @@ creo que después de ese bar, es cuando ya me fui, y quise saltar, lo que te he 
 - sin embargo lo paso a otro corte porq quizá viene:
 
 
-###Corte 4
+### Corte 4
 
 Vas a la carcel y te dejan entrar.
 Ahí esta un amigo íntimo tuyo cumpliendo condena.
@@ -110,7 +108,6 @@ y ya me voy, y empiezo a ver si va a encontrar, esta gente sabe,
 
 yo tengo que ir por ahí, tenía, iba con alguien, con alguien, ahí, y creo que antes ...
 
-¿cortes 2 - 3 y 4?
 
 ### Corte 5
 
@@ -121,11 +118,3 @@ mía, que era el pastor, y le dice, ponme dos de castañas, aunque yo le digo un
 yo las castañas las quería para llevar con los amigos, con los que estaba antes, y hacerle un poco las paces, y llevarles comida caliente, porque habíamos dormido en la Interperi, y viene la hija del dueño del bar, del sitio este, y quería filtrar conmigo, y ella se quejaba de lo que había en ese lugar, y yo estaba como, la había huido de un sitio, para venir al campo, y estar ahí, déjame que yo he venido aquí al campo a que no me lie nadie,
 
 después de eso salgo un poco del bar, el campo, que al salir ahora hay una caseta con un bar, estaba comprando desde el exterior, y ahora se convierte en un salón, estoy saliendo del salón, y al salir veo otra vez la puerta de la valla eléctrica, y me meto dentro, y estaban haciendo un bolo, no estaba lleno de abono, y estaban haciendo conciertos, y había mucha gente, las ovejas ahora eran gente, y yo iba con el bajo, y paso al lado del escenario, y veo como están tocando, las luces del escenario no funcionaban, pero la gente tocaba igual, y abajo había más músicos que iban a tocar después, y gente bebiendo, y super buen rollo, y mis castañas, y yo pensando voy a comer castañas, y de repente me encuentro a Álvar y a Alex, es como que hace huella en la espalda, y estoy hablando con Alex, que se transforma en Lilia, y le doy castañas, y en vez de comer se pone a beber cerveza, y Alex dice algo, y estaba borracho, y tira la cerveza dentro de las castañas, que ahora es cerveza, y yo, pero tío que haces, y dice, ahora estará más amarga
-
-
->> [User1-archivo-sueños](/historias/User1/-All_U1-As.md)
-
-![alt text](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/Ultrasueño%20krita.PNG)
-
-
-

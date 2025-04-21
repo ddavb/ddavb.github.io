@@ -2,9 +2,9 @@
 
 Examen
 
-[David] iba a salir del piso de [adri] a las 7 de la mañana para hacer el examen de las opos. [adri] está durmiendo, escucha como david se va, y vuelve a dormirse.
+[hD] iba a salir del piso de <hA> a las 7 de la mañana para hacer el examen de las opos. <hA> está durmiendo, escucha como [hD] se va, y vuelve a dormirse.
 
-Al cabo de un momento [david] está de vuelta. [adri] se despierta (en el sueño) y pregunta:
+Al cabo de un momento [hD] está de vuelta. <hA> se despierta (en el sueño) y pregunta:
 
 + Qué hora es?
 - Las 9 (enseñando su móvil)
