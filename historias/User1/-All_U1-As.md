@@ -7,7 +7,7 @@
    - [to-do]
 
 
-   - [2024/12 Arroz tres delicias](./U1-archivo-sueños/2024-12-09_Arroz_tres_delicias.md)
+   - [2024/12 Huída](./U1-archivo-sueños/2024-12-09_Huída.md)
 
    - [2024/12 Laberinto](./U1-archivo-sueños/2024-12-02_Laberinto.md)
 
@@ -19,15 +19,15 @@
 
    - [2024/10 Peñismar](./U1-archivo-sueños/2024-10-22_Peñismal.md)
 
-   - [2024/10 Intermedio del iaio](./U1-archivo-sueños/2024-10-10_Sueño-breve-iaio.md)
+   - [2024/10 Breve iaio](./U1-archivo-sueños/2024-10-10_breve-iaio.md)
 
 
 
-   - [2024/09 Intermedio en China](./U1-archivo-sueños/2024-09-23_Intermedio_china.md)
+   - [2024/09 Intermedio China](./U1-archivo-sueños/2024-09-23_Intermedio_china.md)
 
    - [2024/09 Karma](./U1-archivo-sueños/2024-09-20_Karma.md)
 
-   - [2024/09 Haz cola para recordar](./U1-archivo-sueños/2024-09-18_Haz_cola_recordar.md)
+   - [2024/09 Recordar](./U1-archivo-sueños/2024-09-18_recordar.md)
 
    - [2024/09 Intermedio en UMA](./U1-archivo-sueños/2024-09-17_fragmento_UMA.md)
 

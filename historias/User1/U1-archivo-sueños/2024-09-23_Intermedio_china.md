@@ -1,6 +1,4 @@
-## 23/09/2024 Intermedio en China
-
-[[ÍNDICE]](#sueños-por-editar)
+## 23/09/2024 Intermedio China
 
 Observas una ciudad China enorme.
 Una ciudad planificada que posee edificios majestuosos, parques y árboles encantadores ... inefable!

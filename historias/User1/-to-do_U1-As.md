@@ -1,13 +1,13 @@
 
 ## 2025/01/14 Sueño lud
 
-Recuerdo que estaba en un concierto de la Luz Big Band en una nave industrial y estaba en el escenario y yo me estaba preparando como para tocar como si fuera la orquesta y me están explicando cosas y de repente viene Pau y me dice ¿Ya a tocar? Y yo, ¿Ya? Y me dice, sí, hombre. Pero como con la mirada noto que no voy a tocar, ¿sabes? Que van a tocar ellos. Y es como que al principio estaba la posibilidad de que yo tocara alguna canción y tal pero en ese momento fue en plan, no, no.
+Recuerdo que estaba en un concierto de la Luz Big Band en una nave industrial y estaba en el escenario y yo me estaba preparando como para tocar como si fuera la orquesta y me están explicando cosas y de repente viene [aP] y me dice ¿Ya a tocar? Y yo, ¿Ya? Y me dice, sí, hombre. Pero como con la mirada noto que no voy a tocar, ¿sabes? Que van a tocar ellos. Y es como que al principio estaba la posibilidad de que yo tocara alguna canción y tal pero en ese momento fue en plan, no, no.
 
 Y yo, uff, menos mal porque no estoy preparado. Empiezan a tocar, está guapo. Yo voy por un lado del escenario.
 
 Hacen cosas, un montón de público. No recuerdo si me junté con alguien por ahí. Se transformó el sitio en un chalet súper grande de madera, de lujo, con piscina.
 
-Y yo estaba como yendo hacia afuera desde el chalet que era muy grande, muchas salas, atravesando salas, y me iba encontrando gente. Estaba Celu, gente del plug, Kukala. Y yo estaba como grabando con el móvil y estaba saliendo cosas súper guapas y en cámara lenta y, no sé, estaba muy guapo.
+Y yo estaba como yendo hacia afuera desde el chalet que era muy grande, muchas salas, atravesando salas, y me iba encontrando gente. Estaba [aZ], gente del plug, [aCc]. Y yo estaba como grabando con el móvil y estaba saliendo cosas súper guapas y en cámara lenta y, no sé, estaba muy guapo.
 
 Era como rayo videoclip. Y en algún momento estoy con Vine y estoy como mirando el móvil, creo, para enseñarle el vídeo que he grabado pero no lo encuentro. Y como que voy recreando otras escenas de fiesta pero que no es ese vídeo que hice.
 
@@ -15,29 +15,29 @@ Y pasan muchas más cosas pero no me acuerdo, tío.
 
 ## 2025/01/23 Sueño ukraina
 
-Pues estaba con Adri, creo que en la UJI, y la acompañaba y iba a hablar con Zelensky, que estaba ahí como en plan, hombre Adri, no sé qué, qué tal, y Adri trabajaba para ellos y Zelensky le preguntaba cosas así y Adri como era ahí, honesto y confeso. Cosas de informática y es como que les ayudaba, trabajaba para ellos como informático, haciendo cosas. Y Zelensky le pagaba y está como muy agradecido en plan, va, tenemos un buen activo aquí, no sé qué.
+Pues estaba con [hA], creo que en la UJI, y la acompañaba y iba a hablar con Zelensky, que estaba ahí como en plan, hombre [hA], no sé qué, qué tal, y [hA] trabajaba para ellos y Zelensky le preguntaba cosas así y [hA] como era ahí, honesto y confeso. Cosas de informática y es como que les ayudaba, trabajaba para ellos como informático, haciendo cosas. Y Zelensky le pagaba y está como muy agradecido en plan, va, tenemos un buen activo aquí, no sé qué.
 
-Y eso, pero de repente Adri ya no estaba, pero iba yo a ver a Zelensky, me decía, hombre Adri, no sé qué. Creo que trabajaba para él yo también, o no sé, o él quería. Estaba yo en el escritorio haciendo cosas y él pasaba por el lado, me decía, Adri, ¿tienes un minuto? Y yo, sí, iba ahí al escritorio y hablábamos de alguna cosa y me saca un libro y me dice, ¿entonces aprenderás Haskell como para sustituir a Adri? Y yo, claro, pensaba, tío, yo me gustaría porque en informático se gana más de lo que voy a hacer yo, pero yo no voy a sustituir a Adri en mi vida, no es tan fácil.
+Y eso, pero de repente [hA] ya no estaba, pero iba yo a ver a Zelensky, me decía, hombre [hA], no sé qué. Creo que trabajaba para él yo también, o no sé, o él quería. Estaba yo en el escritorio haciendo cosas y él pasaba por el lado, me decía, [hA], ¿tienes un minuto? Y yo, sí, iba ahí al escritorio y hablábamos de alguna cosa y me saca un libro y me dice, ¿entonces aprenderás Haskell como para sustituir a [hA]? Y yo, claro, pensaba, tío, yo me gustaría porque en informático se gana más de lo que voy a hacer yo, pero yo no voy a sustituir a [hA] en mi vida, no es tan fácil.
 
 Y entonces cogí el libro y le dije, lo pensaré. Y volví al escritorio, se llevaba al escritorio y estaba hablando con alguien y detrás escucho a alguien que abre una nevera y pregunto, oye, ¿dónde está la leche? Y yo la veo y la leche estaba en mi escritorio. Y digo, pues está ahí, y como más gente alrededor se gira para mirar dónde es ahí, dónde he señalado, y me miran y yo, ahí, en mi escritorio.
 
-Y se ríen, y voy y cojo la leche y la dejo en algún sitio. Y luego creo que iba a hablar con Adri en plan, ¿y Adri? Y me dice Alex que me ha propuesto trabajo. Y dice Alex que estaba sentado en la mesa de detrás.
+Y se ríen, y voy y cojo la leche y la dejo en algún sitio. Y luego creo que iba a hablar con [hA] en plan, ¿y [hA]? Y me dice Alex que me ha propuesto trabajo. Y dice Alex que estaba sentado en la mesa de detrás.
 
-Pero era como, bueno, empezó a pensar en Lili, en la gente ucraniana, aquí en España, no sé. Un poco triste también eso. Pero no ha sido triste.
+Pero era como, bueno, empezó a pensar en Illya, en la gente ucraniana, aquí en España, no sé. Un poco triste también eso. Pero no ha sido triste.
 
 ## 2025/01/25 Sueño gatos
 
-No entiendo cómo, pero tenía cuatro gatos. Bueno, mi familia... Bueno, no, estábamos dando vueltas con mi madre por Peñíscola, con el coche, para aparcarlo. Y, bueno, los sitios por donde estábamos eran urbanizaciones, donde había mar y barcos.
+No entiendo cómo, pero tenía cuatro gatos. Bueno, mi familia... Bueno, no, estábamos dando vueltas con mi [ZA] por Peñíscola, con el coche, para aparcarlo. Y, bueno, los sitios por donde estábamos eran urbanizaciones, donde había mar y barcos.
 
-Pero estaba el interior, bueno... Y... Y, bueno, mi madre sabía un truco que le había dicho Joel para aparcar el coche en un sitio. Pero yo veía que estaba lejos, o sea, que habíamos aparcado lejos. Pero mi madre, no, no, que por aquí me dicen que hay aparcamiento.
+Pero estaba el interior, bueno... Y... Y, bueno, mi [ZA] sabía un truco que le había dicho Joel para aparcar el coche en un sitio. Pero yo veía que estaba lejos, o sea, que habíamos aparcado lejos. Pero mi [ZA], no, no, que por aquí me dicen que hay aparcamiento.
 
 Y yo, bueno, pues, me caí. Y debemos llegar a nuestra casa. Y cuando llegamos... Teníamos cuatro gatos.
 
-Y creo que mi madre empieza a cortarle... Como... El... El pellejo, un poco, a uno, por la parte de... De la columna vertebral del gato. Y en algún momento clava el cuchillo, un poco. Y yo estaba atorrado porque el animal estaba vivo y no se estaba quejando.
+Y creo que mi [ZA] empieza a cortarle... Como... El... El pellejo, un poco, a uno, por la parte de... De la columna vertebral del gato. Y en algún momento clava el cuchillo, un poco. Y yo estaba atorrado porque el animal estaba vivo y no se estaba quejando.
 
-Y yo, madre, pero que... Como es que al animal no le duele. Y dice, bueno, no sé, suelta alguna excusa como... ¿Sabes como cuando... Estás cocinando galeras que están vivas... Y... Pero están como medio groguis. Pero sienten el dolor, ¿no? Pues esto era parecido.
+Y yo, [ZA], pero que... Como es que al animal no le duele. Y dice, bueno, no sé, suelta alguna excusa como... ¿Sabes como cuando... Estás cocinando galeras que están vivas... Y... Pero están como medio groguis. Pero sienten el dolor, ¿no? Pues esto era parecido.
 
-Pero no sentían el dolor. Y yo... Me sabía muy mal por los gatos, pero es como ya estaban sentenciados a muerte. Y veía como mi madre cortaba... A un trozo más grande.
+Pero no sentían el dolor. Y yo... Me sabía muy mal por los gatos, pero es como ya estaban sentenciados a muerte. Y veía como mi [ZA] cortaba... A un trozo más grande.
 
 Y ya... No sé... Y veo que... Uno de los gatos empieza a hacer signos de dolor. Y ya me empieza a dar mala hostia y tristeza. Y lo estoy viendo, estoy viendo cómo sufre.
 
@@ -53,7 +53,7 @@ Y me abrazó en plan... Jo, yo también. A mí también me da pena. No sé qué.
 
 ## 2025/03/14 Sueño
 
-No sé exactamente qué estábamos haciendo. Un viaje de algo. Y estábamos encima de una plataforma.
+No sé exactamente qué estábamos haciendo (yo y [hA]). Un viaje de algo. Y estábamos encima de una plataforma.
 
 No sé, diría de... Tres metros por tres. Era una plataforma flotante. Bastante ancha y servía como puente.
 
@@ -67,9 +67,9 @@ Y va de un sitio a otro. Y que hay gente esperando en la otra parte del río. Pe
 
 Con mucho caudal. Y llevaba oleaje. Y era simplemente una plataforma, no había nada de seguridad.
 
-Y yo en algún momento me caigo. Y... Mientras... Bueno... Adri me dijo... Algo tipo... ¿Queréis ir al río Canadá? Y... El río Hudson, el río... Adri me dijo. Y me empecé a petar porque obviamente no era.
+Y yo en algún momento me caigo. Y... Mientras... Bueno... [hA] me dijo... Algo tipo... ¿Queréis ir al río Canadá? Y... El río Hudson, el río... [hA] me dijo. Y me empecé a petar porque obviamente no era.
 
-Y me caigo. Y aparezco en un centro de deporte de Madrid, creo. Adri estaba conmigo.
+Y me caigo. Y aparezco en un centro de deporte de Madrid, creo. [hA] estaba conmigo.
 
 Íbamos caminando por el centro este. Salimos hacia... Era una cosa muy rara, en verdad. Era como... Estaba todo confundido.
 
@@ -88,9 +88,9 @@ Y fuera había una figurita de Jesús. Y había vitrinas, pero había como unas 
 Y la huelga ya significaba que eso no lo iban a meter dentro de la vitrina.
 
 
-## 2025/03/29 Sueño lluvia H
+## 2025/03/29 Sueño lluvia ([ptto])
 
-Pues, estaba en tu casa, pero tenía la forma de mi casa y, pero era tu casa, estábamos tú y yo, había un chico más y ahí se ha encendido un peta. Y yo fumo, pero me subió muy lleno. Te lo digo, pero no me hacéis mucho caso.
+Pues, estaba en tu casa ([ptto]), pero tenía la forma de mi casa y, pero era tu casa, estábamos tú y yo, había un chico más y ahí se ha encendido un peta. Y yo fumo, pero me subió muy lleno. Te lo digo, pero no me hacéis mucho caso.
 
 Y estás como en plan, tío, ahora te colocaste en todo, joder, o sea que, pero no lo dijiste, sé lo que es esto. Y yo, uff, es que estoy, no sé por qué me he colocado tanto. Me voy, me voy y vuelvo, pero casi me caigo, tengo que sentarme, pero me voy, vuelvo y yo ya, ya está, ya estoy mejor.
 
@@ -113,4 +113,4 @@ Y él, vale, vale, me pide un café con él, y cada uno se fue por un lado a tom
 
 Y al entrar, estaba Javier Milei, era el dueño, y me está diciendo de tocar, y yo tenía un réper para tocar, y había una chica, me decía, y no te pones nervioso antes de tocar, y yo, bueno, hoy sí, porque voy a tocar yo solo, voy a tocar yo solo el bajo con pistas de fondo. Y me puse como a montar, y me empezaron a preguntar qué réper no tenía, y no sé qué, y yo veía que tenía que montar muchas cosas, y me estaban distrayendo. Y me estaban empezando a agobiar ellos, el dueño, y me preguntaba, y yo decía, mira, sí, que de Overleaf me descargo el PDF de réper, y una chica por ahí, uh, réper, qué carga.
 
-Y yo, bueno, pues es que se llama así, y yo estaba montando, y aparece Pau, y es como que me ayuda a desmontar, o bueno, no me ayuda, pero me está hablando, como si esa situación lo hubiera pasado ya con el padre Roche, y se acabó.
+Y yo, bueno, pues es que se llama así, y yo estaba montando, y aparece [aP], y es como que me ayuda a desmontar, o bueno, no me ayuda, pero me está hablando, como si esa situación lo hubiera pasado ya con el padre de [aR], y se acabó.

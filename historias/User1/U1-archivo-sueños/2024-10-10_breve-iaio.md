@@ -1,6 +1,4 @@
-## 10/10/2024 Sueño breve iaio
-
-[[ÍNDICE]](#sueños-por-editar)
+## 10/10/2024 breve iaio
 
 Estás en un coche, un sub negro.
 Conduce tu iaio con sus 99 años, que de repente está para conducir. En verdad no mucho ...

@@ -9,21 +9,21 @@
 
 ### corte 2
 
-Estas en el jardín de tu casa, las dimensiones no son las reales, el jard'in es m'as peque~no, y un niño ha tirado algo dentro.
-Y claro, lo ves como entrado, estando sus padres también por ah'i, le dices: tranquilo, pasa, pasa; 'el recoje lo suyo.
+Estas en el jardín de tu casa, las dimensiones no son las reales, el jardín es más pequeño, y un niño ha tirado algo dentro.
+Lo ves entrar junto a sus padres y le dices: tranquilo, pasa, pasa; él recoje lo suyo.
 Eran cactus. Había tirado un cactus y en ese lapso del tiempo habían hechado raíz; y los estabas recogiendo tu.
 
 Te fijas y te has clavado pinchos en las rodillas.
-Te los vas sacando. Son super largas. Tienes las rodillas llenas de los pinchos.
+Te los vas sacando. Son super largos y tienes las rodillas llenas de los pinchos.
 Tus rodillas parecen un cactus.
-No te duele pero notabas el pincho salir de dentro tuyo.
-Lo piensas, ?te hace daño?
+No te duele pero notas el pincho salir de dentro tuyo.
+Te preguntas si te hace daño
 
 ### corte 3
 
 Acabas de entrar en el Zurdo, que es el bar de carretera de Santa Madalena, que no se llama Zurdo, se llama Ca`Vicent.
 Te sorprende pq está abierto y ese bar de carretera cerró hace tiempo. 
-Es como si estuvieras en Santa Madalena, y ah'i est'a la gente que recuerdas del pasado.
+Es como si estuvieras en Santa Madalena, y ahí está la gente que recuerdas del pasado.
 
 Te acercas a la barra (el lugar es muy distorsionado al real) es tipo cafetería.
 pides quizá un café. rebuscas en el bolsillo derecho y sacas monedas, algunas son falsas. fantaseas con pagar con esas monedas pero ahí no, es un sitio que tengo cariño.
