@@ -19,17 +19,17 @@
 
    - [2024/10 Peñismar](./U1-archivo-sueños/2024-10-22_Peñismal.md)
 
-   - [2024/10 Breve iaio](./U1-archivo-sueños/2024-10-10_breve-iaio.md)
+   - [2024/10 fragmento iaio](./U1-archivo-sueños/2024-10-10_fragmento-iaio.md)
 
 
 
-   - [2024/09 Intermedio China](./U1-archivo-sueños/2024-09-23_Intermedio_china.md)
+   - [2024/09 fragmento China](./U1-archivo-sueños/2024-09-23_fragmento_china.md)
 
    - [2024/09 Karma](./U1-archivo-sueños/2024-09-20_Karma.md)
 
    - [2024/09 Recordar](./U1-archivo-sueños/2024-09-18_recordar.md)
 
-   - [2024/09 Intermedio en UMA](./U1-archivo-sueños/2024-09-17_fragmento_UMA.md)
+   - [2024/09 fragmento UMA](./U1-archivo-sueños/2024-09-17_fragmento_UMA.md)
 
    - [2024/09 Parte policial](./U1-archivo-sueños/2024-09-11_parte_policial.md)
    
