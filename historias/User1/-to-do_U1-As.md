@@ -114,3 +114,108 @@ Y él, vale, vale, me pide un café con él, y cada uno se fue por un lado a tom
 Y al entrar, estaba Javier Milei, era el dueño, y me está diciendo de tocar, y yo tenía un réper para tocar, y había una chica, me decía, y no te pones nervioso antes de tocar, y yo, bueno, hoy sí, porque voy a tocar yo solo, voy a tocar yo solo el bajo con pistas de fondo. Y me puse como a montar, y me empezaron a preguntar qué réper no tenía, y no sé qué, y yo veía que tenía que montar muchas cosas, y me estaban distrayendo. Y me estaban empezando a agobiar ellos, el dueño, y me preguntaba, y yo decía, mira, sí, que de Overleaf me descargo el PDF de réper, y una chica por ahí, uh, réper, qué carga.
 
 Y yo, bueno, pues es que se llama así, y yo estaba montando, y aparece [aP], y es como que me ayuda a desmontar, o bueno, no me ayuda, pero me está hablando, como si esa situación lo hubiera pasado ya con el padre de [aR], y se acabó.
+
+## Sueño 07.04.2025
+
+Pues he soñado que estaba una iglesia con una lina y bajábamos las escaleras centrales. Creo que estaban en misa. Las escaleras pertenecían a la capilla y a los laterales había sitio para sentarse.
+
+Estaba Marta, que he visto por ahí. Y delante había sitio. Digo, ni tengo que estar, Elena, para sentarnos por la derecha.
+
+Y ya se sentó por la izquierda. No, no me ha pasado nada. Acabo un rato y ya estaba a la derecha.
+
+Estaba atrás a la izquierda. Estaba atrás a la izquierda. Y escucho como pedo.
+
+Pedo muy largo. Y alguien que gime o se escucha como estaba conteniéndose un gemido por no cagarse encima. Y me gire y veo a una persona retorcida de dolor.
+
+Menos válida. Encima de como un carro. Para menos válidos.
+
+Y cuando se le va el dolor, se gira para atrás como quien ha sido. Porque todos estaban mirando, todos habían girado. Y en un momento dado, coge y se va al baño.
+
+Todo esto mientras todos un poco miraban. Nadie se rió, pero fue con el pan. Sorpresa.
+
+Después, soñé algo con Elena. Ese menos válido y otro fueron al baño. Y fueron por el ascensor.
+
+Y cantaron una melodía. Y yo estaba discutiendo con Elena cuál era la mejor forma de representar música con colores. Estaba la escala de... En la escala de su... Digamos, la escala de... La mayor.
+
+Y yo quería... No sé. Magenta y azul y verde. O azul y verde.
+
+Y ella cogió otros colores. Bueno, los menos válidos ahora son espías y quieren escapar. Y... Consiguieron entrar en el ascensor.
+
+Y los gatos que tenía el gobierno están corriendo por las escaleras para identificar en qué piso ha bajado.
+
+
+## Inteo sueño 16.04.2025
+
+Venecia, examen de las Opus, Willy borracho, casa, Sevilla, ¿no? Luego estaba discutiendo con Elena, tomaba prestado el cuerpo de Rocío. Había un bebé por ahí en la ventana y luego venían y se enfadaban, creo. Y ahora...
+
+### sueño 16.04.2025
+
+Pues estaba en Venecia, creo, acaba justo de llegar, creo que estaba con Adri, y estamos en una plaza mirando. En el suelo había agua y, bueno, se veía muy bonito. Y vemos dos pisos por dentro, tres, y yo sabía que había hecho un examen ahí antes, de las sopos, alguna vez, y ese día iba a ser el último.
+
+Yo lo sentía como, este es el último. Y teníamos justo la habitación en cristal con cristal, con toda esa sala, pero luego eso no va más en el sueño, que enseguida me olvido. Y empieza el examen, bueno, directamente lo hago, y la sensación está final de, bueno, he acabado, ya está, no se va a repetir, este es el último examen.
+
+Y salgo de la clase, como para finiquitarlo todo, y salgo, y no me lo creía, es como, joder, había gente, por ahí estaba Isma. Y luego me acuerdo y vuelvo dentro del aula porque me había olvidado todo, la mochila, además de que cuando salí fuera a buscar las notas, la mía no la encontraba. Habían como algunas antiguas y había algo que no entendía de notas, y vuelvo dentro corriendo porque me había dejado el examen encima de la mesa, y mis cosas también.
+
+Las cojo y se los doy a la profesora, que es una de las bibliotecarias que está aquí en Benicarlo, digo un chasquerrillo, pero entrego el examen y me pongo a recoger cosas. Y como había tardado, empieza a entrar gente para otra clase, porque después del examen había una clase de una universidad o de algo, y yo tardo tanto que la clase se llena y estoy obligado a escuchar los primeros 30 segundos de clase. Y yo acabo de recoger, me aseguro que lo he cogido todo y me voy, pero me costó un poco.
+
+Acabo de tener un flash de otro sueño, que estaba en el cine con alguien y yo estaba jugando con una luz. O este es lo de la casa sevillana, el antes. Bueno, eso, pongo aquí la nota esa.
+
+Y bueno, salgo de la clase, la profesora me mira mal, y a la salida me encuentro a Willy, que estaba super pedo, y había alguien más con él, no me acuerdo quién. Y va como corriendo por... ¡Willy, fillo! De Venecia, que era una universidad. Y va corriendo por ahí y diciendo cosas en voz alta, que se ve que venían de fiesta.
+
+Y creo que ahí se acabó este sueño. El del cine. Vimos una película y yo jugaba con una luz.
+
+Y jugando, jugando, no sé cómo, una vez que apagué la luz, que era la luz de mi móvil o algo así, estábamos última, penúltima, bueno, por el final, cuando apagáis la luz, se apagó todo del cine. Y empecé a sentir que la gente me echaba la culpa a mí. Y venía como gente y me saludaban y me decían muy bien, era una buena campeón.
+
+Me chocaba así la espalda y yo sentado como intentando esconderme en plan... No sé por qué la gente cree que soy yo, pero... Bueno. Y yo consigo salir de ahí. Y llego a una casa.
+
+Salgo y vi a una chica. Luego más tarde caí, que era la novia de Hugo, pero en ese momento no. Y es como, me llevo muy bien con ella.
+
+Y me hacía como bromas, creo, pero divertidas. Y me hizo algún acertijo, creo. Es como estamos muy guay.
+
+Luego me decía cosas tipo... No sé. Bueno, no me acuerdo. Estaba Albert por ahí.
+
+Creo que ella hizo como para que él me tocara el culo. Y luego estaba el hermano Hugo por ahí. Y es como, no sé, ella estaba... Haciendo cosas divertidas y a la vez... Curiosas que no entendía.
+
+Y llega un momento que hay mucha gente en la sala y yo... Bueno, que yo me voy. Y yo no me daba ganas de que... Me voy, la hago por una puerta. Recuerdo que me deja la mochila, así que vuelvo con la mochila.
+
+Me vuelvo a salir. Y estoy con Albert y le digo... ¿Cómo os hago? Me dice, pues hay una salida que se llama tal y otra que se llama tal. Y yo, vale.
+
+Entonces voy a intentar... Voy por la derecha. Hay un cartel, pero no encuentro ese nombre. Y es como dentro de un salón subo unas escaleras.
+
+No de caracol, pero que estaban atrás de la pared. Y las subo y no encuentro la salida. Y aparece una señora por ahí.
+
+Y yo... En Piedad del Sol hasta el momento era un sitio cerrado, pero ahora es como... Un chalet sevillano. Y hay una señora dentro de la casa, que es enorme y tiene muchos pisos. Le pregunto y me lo dice.
+
+Al principio fue un poco verde, pero luego fue simpática. Y... Entonces... Me enseña como las salidas. Y cada salida... Tenía una parte fácil de hacer y una difícil.
+
+Como me enseña una, que tenía que subir por... Entrar dentro de una chimenea, subir... Más aún, con una escalera. Engancharme a un tronco. O sea, todo esto está enganchado a un tronco.
+
+Y caminar por el tronco y luego bajar. Y... Yo pensé... Voy a crear mi propio reto para salir. Porque al final se trata de un reto para salir.
+
+Y esa mujer se convierte en una chica muy atractiva. Y yo dije, voy a ir por ahí y ella... Bueno, no sé, no sé. Y yo sí, sí.
+
+Y era como una valla... Que tenía pinchos... Y estaba doblada. Hacia adelante o hacia atrás, no recuerdo. Pero... No, no estaba doblada.
+
+Pero la consigo saltar. Y la chica está al otro lado de la valla. Y yo pensando... Qué pena que me haya ido justo ahora que está esta chica aquí.
+
+Entonces, como que... Hago... Me apoyo en la valla con la barriga. Y hago fuerza para doblarla. Y al menos acercarme y poder besarla.
+
+Y la beso. Y vuelve a aparecer al bar. Y... No sé si pasó algo más.
+
+Luego estaba en un piso. Luego estaba en un piso. Y llegué.
+
+Y es como... Que cogí prestado el cuerpo de Rocío. Y fui al baño. Y es que tenía una barruga en una teta.
+
+Pero esa barruga... Como... Fua. Se hizo muy grande. Se hizo como del tamaño de un brazo.
+
+Era como una lengua del tamaño de un brazo. Pero era una barruga. Y era de color de pezón.
+
+Entonces para ver el pezón tu tenías que levantar como esa lengua de la teta. Me fijé y las dos tetas tenía. Y por la ventana apareció una mujer con un niño.
+
+Entonces... Me miraron. Y yo estaba como jugando con las tetas. Y... Y así me acerqué hacia el niño.
+
+Y me tocó la teta. Y se empezó a jugar. Y entró Rocío.
+
+Que ahora me cae Rocío. Y me he hecho un poco... Cabreado. Y no me justifiqué.
+
+Porque me ha cogido su cuerpo. Pero... No se enfadó del todo.
