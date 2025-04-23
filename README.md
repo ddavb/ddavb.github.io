@@ -16,10 +16,11 @@ Lo expreso a través de poca coherencia textual y faltas de ortografía.
 - to do: the best
 
 
+[Ilustraciones - photo edit](/ilustraciones.md)
+
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/7AA.png)
 
 
-[Ilustraciones - photo edit](/ilustraciones.md)
 
 [to do U1-As](/historias/User1/-to-do_U1-As.md)
 
