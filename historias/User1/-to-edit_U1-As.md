@@ -105,19 +105,9 @@ Y en todas las habitaciones había llovido dentro de la habitación. Y eso pasó
 Y se había taponado esa salida de agua y se había acumulado tanta agua que estaban los techos. Los techos llovían un poquito.
 
 
-## 2025/04/15 Sueño
+## 2025/04/07 Sueño
 
-Soñé que estaba en un sitio chill-out, bar, de estilo playero, con mucha vegetación y no sé si el bar donde servían las cosas era... como una... una caravana antigua que le faltaba un lado, o como que habían adecuado para hacer un bar, o algo así. Y estaba con... un chaval, que no me acuerdo cómo se llama ahora, y se toma un café, y en el momento de pedirlo pasan cosas, hace cosas, y él está hablando con la camarera y le coge unas siete galletas que son redonditas tipo donut, y las iba poniendo dentro del café, y puso unas siete, y luego se puso un poco más de café para que desbordara y el vaso se llenara un poquito más de café, y volvió a poner otra galleta dentro de la taza de café, y era extraño, me hubiera gustado saber la razón. Estaba preguntando cuánto tiempo lleva haciendo esto, y nos vamos de ese bar, y él se queda en una mesa sentado con una persona que... yo no quería estar en esa conversación, entonces les dije, bueno, nada, un placer que me piro, y me fui.
-
-Y él, vale, vale, me pide un café con él, y cada uno se fue por un lado a tomarlo. Y yo iba con la taza de café por unas calles que había mucha vegetación, el suelo está asfaltado, pero por los lados está lleno de vegetación, y hay una... voy caminando por esa calle, era un poco curva, y hay otro bar, y decido entrar. Mi idea era guardarme la taza en la mochila o en algún sitio, y hacer algo, o dormir, o acuerdo.
-
-Y al entrar, estaba Javier Milei, era el dueño, y me está diciendo de tocar, y yo tenía un réper para tocar, y había una chica, me decía, y no te pones nervioso antes de tocar, y yo, bueno, hoy sí, porque voy a tocar yo solo, voy a tocar yo solo el bajo con pistas de fondo. Y me puse como a montar, y me empezaron a preguntar qué réper no tenía, y no sé qué, y yo veía que tenía que montar muchas cosas, y me estaban distrayendo. Y me estaban empezando a agobiar ellos, el dueño, y me preguntaba, y yo decía, mira, sí, que de Overleaf me descargo el PDF de réper, y una chica por ahí, uh, réper, qué carga.
-
-Y yo, bueno, pues es que se llama así, y yo estaba montando, y aparece [aP], y es como que me ayuda a desmontar, o bueno, no me ayuda, pero me está hablando, como si esa situación lo hubiera pasado ya con el padre de [aR], y se acabó.
-
-## Sueño 07.04.2025
-
-### 1
+### 1 ([ptto])
 
 Pues he soñado que estaba una iglesia con una lina y bajábamos las escaleras centrales. Creo que estaban en misa. Las escaleras pertenecían a la capilla y a los laterales había sitio para sentarse.
 
@@ -145,16 +135,30 @@ Y ella cogió otros colores. Bueno, los menos válidos ahora son espías y quier
 
 Y los gatos que tenía el gobierno están corriendo por las escaleras para identificar en qué piso ha bajado.
 
-### 2
+### 2 ([ptto])
 
 Buah, íbamos a Camilos a por pizzas y como no dijimos nada hicieron las pizzas y no nos avisaron, estuvimos esperando fuera y al preguntar Elena fue como la otra vez y al preguntar por las pizzas dijeron vale las recalentamos y os las lleváis y ya está pero no sé por qué si pasaba más de media hora desde que la hacían pues que la tiraban, la estiraron una y tiene que volverla a dijeron que ya estaba, fui a pagar pensando si de normal cuesta 40 pavos tendré que pagar el doble o quizá menos y pensando a ver cuánto cuesta y sale una chica y me da un papel y me dice mira esto es lo que te va a costar y ponía 770 euros y me puso hecho una furia con ella en plan de que vais, que esto es aceptable que no voy a pagar eso, que me cabré con ello, pero nos habían servido las pizzas y no sabíamos, yo les decía yo no voy a pagar así que si queréis llamar a la policía a llamar y se metieron dentro y salió otro dueño a decirme cosas y se volvió a entrar y bueno, fuimos a la terraza de caminos que no existe, pero en mis sueños si, a comer las pizzas y aparece Tomas Elvi que conoció a Elena y dice alguna referencia de Smotty Python, entonces Elena y Selvi cada una haciendo una referencia a Smotty Python diferente y luego aparece otra vez algún dueño o un cocinero y me dice déjame que les retire las guindillas picantes de su plato y yo pensé quizá lo han hecho como me han puesto algo malo en el plato y ahora quieren compensarlo, o sea no quieren que sufra y el chino, como que para quitar esas guindillas manoseaba mi comida y yo me cabreaba, le decía que no hiciera eso pero él no paraba y intentando que no lo hiciera, pero él seguía y yo me reía un poco, risa incómoda, como tío que mierda que está haciendo con mi comida
 
 
-## Inteo sueño 16.04.2025
+## 2025/04/15 Sueño
 
-Venecia, examen de las Opus, Willy borracho, casa, Sevilla, ¿no? Luego estaba discutiendo con Elena, tomaba prestado el cuerpo de Rocío. Había un bebé por ahí en la ventana y luego venían y se enfadaban, creo. Y ahora...
+Soñé que estaba en un sitio chill-out, bar, de estilo playero, con mucha vegetación y no sé si el bar donde servían las cosas era... como una... una caravana antigua que le faltaba un lado, o como que habían adecuado para hacer un bar, o algo así. Y estaba con... un chaval, que no me acuerdo cómo se llama ahora, y se toma un café, y en el momento de pedirlo pasan cosas, hace cosas, y él está hablando con la camarera y le coge unas siete galletas que son redonditas tipo donut, y las iba poniendo dentro del café, y puso unas siete, y luego se puso un poco más de café para que desbordara y el vaso se llenara un poquito más de café, y volvió a poner otra galleta dentro de la taza de café, y era extraño, me hubiera gustado saber la razón. Estaba preguntando cuánto tiempo lleva haciendo esto, y nos vamos de ese bar, y él se queda en una mesa sentado con una persona que... yo no quería estar en esa conversación, entonces les dije, bueno, nada, un placer que me piro, y me fui.
 
-### sueño 16.04.2025
+Y él, vale, vale, me pide un café con él, y cada uno se fue por un lado a tomarlo. Y yo iba con la taza de café por unas calles que había mucha vegetación, el suelo está asfaltado, pero por los lados está lleno de vegetación, y hay una... voy caminando por esa calle, era un poco curva, y hay otro bar, y decido entrar. Mi idea era guardarme la taza en la mochila o en algún sitio, y hacer algo, o dormir, o acuerdo.
+
+Y al entrar, estaba Javier Milei, era el dueño, y me está diciendo de tocar, y yo tenía un réper para tocar, y había una chica, me decía, y no te pones nervioso antes de tocar, y yo, bueno, hoy sí, porque voy a tocar yo solo, voy a tocar yo solo el bajo con pistas de fondo. Y me puse como a montar, y me empezaron a preguntar qué réper no tenía, y no sé qué, y yo veía que tenía que montar muchas cosas, y me estaban distrayendo. Y me estaban empezando a agobiar ellos, el dueño, y me preguntaba, y yo decía, mira, sí, que de Overleaf me descargo el PDF de réper, y una chica por ahí, uh, réper, qué carga.
+
+Y yo, bueno, pues es que se llama así, y yo estaba montando, y aparece [aP], y es como que me ayuda a desmontar, o bueno, no me ayuda, pero me está hablando, como si esa situación lo hubiera pasado ya con el padre de [aR], y se acabó.
+
+
+## 2025/04/16 sueño
+
+
+### Inteo sueño 16.04.2025
+
+Venecia, examen de las Opus, Willy borracho, casa, Sevilla, ¿no? Luego estaba discutiendo con ([ptto]), tomaba prestado el cuerpo de Rocío. Había un bebé por ahí en la ventana y luego venían y se enfadaban, creo. Y ahora...
+
+### 
 
 Pues estaba en Venecia, creo, acaba justo de llegar, creo que estaba con Adri, y estamos en una plaza mirando. En el suelo había agua y, bueno, se veía muy bonito. Y vemos dos pisos por dentro, tres, y yo sabía que había hecho un examen ahí antes, de las sopos, alguna vez, y ese día iba a ser el último.
 
@@ -163,6 +167,8 @@ Yo lo sentía como, este es el último. Y teníamos justo la habitación en cris
 Y salgo de la clase, como para finiquitarlo todo, y salgo, y no me lo creía, es como, joder, había gente, por ahí estaba Isma. Y luego me acuerdo y vuelvo dentro del aula porque me había olvidado todo, la mochila, además de que cuando salí fuera a buscar las notas, la mía no la encontraba. Habían como algunas antiguas y había algo que no entendía de notas, y vuelvo dentro corriendo porque me había dejado el examen encima de la mesa, y mis cosas también.
 
 Las cojo y se los doy a la profesora, que es una de las bibliotecarias que está aquí en Benicarlo, digo un chasquerrillo, pero entrego el examen y me pongo a recoger cosas. Y como había tardado, empieza a entrar gente para otra clase, porque después del examen había una clase de una universidad o de algo, y yo tardo tanto que la clase se llena y estoy obligado a escuchar los primeros 30 segundos de clase. Y yo acabo de recoger, me aseguro que lo he cogido todo y me voy, pero me costó un poco.
+
+### 
 
 Acabo de tener un flash de otro sueño, que estaba en el cine con alguien y yo estaba jugando con una luz. O este es lo de la casa sevillana, el antes. Bueno, eso, pongo aquí la nota esa.
 
@@ -208,6 +214,8 @@ Entonces, como que... Hago... Me apoyo en la valla con la barriga. Y hago fuerza
 
 Y la beso. Y vuelve a aparecer al bar. Y... No sé si pasó algo más.
 
+### 
+
 Luego estaba en un piso. Luego estaba en un piso. Y llegué.
 
 Y es como... Que cogí prestado el cuerpo de Rocío. Y fui al baño. Y es que tenía una barruga en una teta.
@@ -225,3 +233,5 @@ Y me tocó la teta. Y se empezó a jugar. Y entró Rocío.
 Que ahora me cae Rocío. Y me he hecho un poco... Cabreado. Y no me justifiqué.
 
 Porque me ha cogido su cuerpo. Pero... No se enfadó del todo.
+
+creo que no fué Rocío sino ([ptto]) con quién discutí
