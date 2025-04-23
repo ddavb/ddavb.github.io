@@ -117,6 +117,8 @@ Y yo, bueno, pues es que se llama así, y yo estaba montando, y aparece [aP], y 
 
 ## Sueño 07.04.2025
 
+### 1
+
 Pues he soñado que estaba una iglesia con una lina y bajábamos las escaleras centrales. Creo que estaban en misa. Las escaleras pertenecían a la capilla y a los laterales había sitio para sentarse.
 
 Estaba Marta, que he visto por ahí. Y delante había sitio. Digo, ni tengo que estar, Elena, para sentarnos por la derecha.
@@ -142,6 +144,10 @@ Y yo quería... No sé. Magenta y azul y verde. O azul y verde.
 Y ella cogió otros colores. Bueno, los menos válidos ahora son espías y quieren escapar. Y... Consiguieron entrar en el ascensor.
 
 Y los gatos que tenía el gobierno están corriendo por las escaleras para identificar en qué piso ha bajado.
+
+### 2
+
+Buah, íbamos a Camilos a por pizzas y como no dijimos nada hicieron las pizzas y no nos avisaron, estuvimos esperando fuera y al preguntar Elena fue como la otra vez y al preguntar por las pizzas dijeron vale las recalentamos y os las lleváis y ya está pero no sé por qué si pasaba más de media hora desde que la hacían pues que la tiraban, la estiraron una y tiene que volverla a dijeron que ya estaba, fui a pagar pensando si de normal cuesta 40 pavos tendré que pagar el doble o quizá menos y pensando a ver cuánto cuesta y sale una chica y me da un papel y me dice mira esto es lo que te va a costar y ponía 770 euros y me puso hecho una furia con ella en plan de que vais, que esto es aceptable que no voy a pagar eso, que me cabré con ello, pero nos habían servido las pizzas y no sabíamos, yo les decía yo no voy a pagar así que si queréis llamar a la policía a llamar y se metieron dentro y salió otro dueño a decirme cosas y se volvió a entrar y bueno, fuimos a la terraza de caminos que no existe, pero en mis sueños si, a comer las pizzas y aparece Tomas Elvi que conoció a Elena y dice alguna referencia de Smotty Python, entonces Elena y Selvi cada una haciendo una referencia a Smotty Python diferente y luego aparece otra vez algún dueño o un cocinero y me dice déjame que les retire las guindillas picantes de su plato y yo pensé quizá lo han hecho como me han puesto algo malo en el plato y ahora quieren compensarlo, o sea no quieren que sufra y el chino, como que para quitar esas guindillas manoseaba mi comida y yo me cabreaba, le decía que no hiciera eso pero él no paraba y intentando que no lo hiciera, pero él seguía y yo me reía un poco, risa incómoda, como tío que mierda que está haciendo con mi comida
 
 
 ## Inteo sueño 16.04.2025
