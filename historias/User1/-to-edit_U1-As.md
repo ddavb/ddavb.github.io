@@ -24,11 +24,222 @@ Estaban como antes de tocar, haciendo cositas, yo iba por ahí, me apoyaba, por 
 
 ## 2024-09-23 S rescatado
 
+Yo soñé que iba con la Megal a Peñíscola con sus amigos. Habían diferentes escenas. Y ella quería ser con sus amigos y yo tenía que ser con algunos de ellos.
+
+Eran latinos y yo no me aclaraba. No me aclaraba para nada. Y es como que en algún momento estaban sobre Peñis y yo me fui.
+
+No sé, estaba súper incómodo allí. En teoría me fui para hacerme un pitillo, pero no sé cómo acabé ya en menicarlo. Y estaba por aquí, como yendo para casa, pero no me paró.
+
+Había como gente. Y yo me acuerdo que en ese momento, en ese momento me acuerdo que es fin de año. Pienso a ver si me da tiempo volver a Peñis, porque si no, en Megal se enfadaron muchísimo.
+
+Pero veo que no me da tiempo y digo, bueno, pues luego cerraré en casa. Y el grupito de Uma como... Como... Eran como inadaptados, que estaban por ahí. Mirame uno a ellos y saco la guitarra y toco.
+
+Pero yo a la vez también intentaba mandarle whatsapps a Michelle, como en plan... Que me fui, no te enfades. No sé. Y en algún momento leí los whatsapps.
+
+No sé, no tenía mucho sentido. Me equivocaba en palabras. Me costaba escribir muchísimo en whatsapp.
+
+Y durante mucho rato intentaba escribir, no me salía. Pero cuando al fin lo vi, es como... ¿Para qué haces esto si no tiene sentido? Habría sido mejor llamar. Bueno.
+
+Y en Peñis antes yo tenía una mochila con cosas. Íbamos a algún local por ahí. Con sus amigos, no sé.
+
+Bueno. Y al final... No era fin de año. Pero lo que sea lo celebraba entre casa y los de Uma.
+
+Luego... ¿Cómo era? Voy a casa de una amiga. Un chalet. Y enfrente vive Emegal.
+
+Y tiene dos bebés. Bueno, dos niños, no sé. Seis, cinco años.
+
+Veo como ella sale de su casa. Desde la casa de esta chica. Veo como ella sale de su casa.
+
+Dos chiquillos como que... Le cogen... Y le empujan así como para llamar la atención. Y ella... Está haciendo cosas. Y... Se le fue la pinza, tío.
+
+Porque al verme a mí con otra chica... Es como que vino a esa casa... Se convirtió en un personaje de Breaking Bad. Tenía como un machete. Entró por la puerta a la fuerza.
+
+Y... Y sí, a ella la mata. A mí me dejaba... Un poco maribundo. Pero es que se le fue la cabeza.
+
+Y luego estaba... Como sentada ahí. En plan... Va, ahora te toca a ti. Y yo veo un plato y... Y se lo... Reviento en la cabeza.
+
+Y ella... No, así no. Cojo otro plato. Pero se me va... No, no le doy.
+
+Voy a coger otro. Cojo otro y le doy, pero... Era... Era inútil. Y yo estaba ahí tirándole platos.
+
+Entonces ella coge, se va al café marrón. A hacer algo. Y yo intento tirar un frisbee.
+
+No consigo... Herirla. Y me voy corriendo a las delicias. Para decirle a la gente que llame a la policía... Que ha habido un asesinato y no sé qué y tal.
+
+Y desde ahí se veía el marrón. Y... Y yo me hice... Vamos a hacer mejor un 061. Porque... Todavía se ven... Los hechos de... No sé qué.
+
+Y era como... Llamar a la policía, pero... Con vídeo. Estamos ahí grabando un vídeo. Estamos grabando ese vídeo.
+
+Policía, no sé qué y tal. Cuenta cosas. Y yo... ¿Va a venir alguna? No sé qué.
+
+30, ¿va a venir aquí? Porque... No sé qué. Entonces cojo el móvil y empiezo a grabar. Y... Y el Magal... ¿Qué hizo, tío? Cogió un extintor.
+
+Y como ya estaba sin arena, hizo como... No sé. Hizo algo. Que tenía planeado.
+
+Y... Y... Una explosión. Una explosión lenta, pero... Barrió todo. Yo me metí dentro de las oficinas.
+
+Y estamos viendo fuera. Cómo volaba todo. Pero... De una forma brutal.
+
+Los coches... La gente cada vez iba... Como ampliándose la zona... De impacto. Y... Y él te... Es como que el resultado... Lo que quedó luego... Era un edificio... Hecho de aviones. De la Segunda Guerra Mundial.
+
+Era algo súper nazi. No sé. Recuerdo... Otro sueño.
+
+Que estaba en China. Pero yo tenía la capacidad de volar. Entonces iba viendo... Los edificios... Me subía... Me sentaba encima de... Unas columnas y observaba... Guau.
+
+
 ## 2024-09-27 S rescatado
+
+Me ha soñado que Chanel iba a la revuelta, lo de Broncano, y que era como una entrevista así, como esperada, que a la gente le molaba. El Chanel estaba nervioso, pero relajado, hablando con Crisol. Había un momento que él estaba con el skate, y como que por la inclinación de él se estaba acercando a Castilla.
+
+Y Castilla, tirada aquí, que está cerca de Crisol, le pasa algo de cuevas y hojas. Y van todos a por el skate, y él aprovecha y se pone a la guitarra. Y intenta tocar, pero en el momento que intenta tocar, es como que yo controlaba a Chanel.
+
+Intento tocar algo, pero no me sale. No me sale tocar como arrancar dos latas. Y bueno, yo creo que mando una foto por Whatsapp de Chanel y Crisol.
+
+Poco más. Antes tenía que ir a Segurata, en... parece una terminal de un aeropuerto. Y una de mis colegas ahí la había liado, y nos estábamos buscando.
+
+Entonces le llamo. ¿Cómo era? Al principio era un videoclip de un grupo así de indie. Y estaba todo el rato pensando, va, tío, que todos los videos son iguales, tío, y no sé.
+
+Pero, vata, ¿cuál era un videoclip de indie? Y una parte del videoclip es como que catseaban al tercer cantante que justo venía a entrar. Porque claro, es un videoclip, y los cantantes en un videoclip están haciendo cosas, están andando. Bueno, y a este cantante le paran un control.
+
+Le hacen enseñar los Michelin. Pero no le dejan pasar nada. Y se convierte en una terminal de aeropuerto.
+
+Y estoy caminando por ahí, como a Segurata, y alguien me dice algo de mi compañero. O era el... ¿no era el cantante del grupo? Como que le hacemos un ultimatum. En plan, ¿no vas a colaborar? ¿No? Vale.
+
+Pero llamaré a la policía. Llamo, pero no llamo a la policía, llamo a los Seguratas. Vienen dos, y les digo, llama hasta la policía.
+
+Y entonces se llama a la policía. Y... Estoy hablando con el cantante del grupo, que ahora se convierte en Segurata. Han ido cambiando roles.
+
+Y yo estoy teniendo una conversación así, íntima, en plan... ¿Qué ha pasado? Pues han habido, bueno, problemas. Y yo, ¿qué problemas? Y me dice, pues aplicar algunas soluciones. Y él, ¿qué soluciones? Y yo, las que funcionan.
+
+¿Y cuál te ha funcionado? Y me dice... Como ha habido un problema de Segurata. Se ve que una chica le había estado haciendo el lío. Una piloto, para conseguir cosas de él.
+
+Y entonces, viene la policía. Me enseña una base de datos y me dice... Atento, porque vas a hacer mi turno. Esta de aquí, es una lianda.
+
+Este de aquí es un grandote. Como que si la lía, te costará manejar la situación. Y viene la lianda.
+
+No sé qué hace, habla con él. Y viene la policía. Trabajadores se llevan a la piloto, lianda esta.
+
+Viene la policía, se lleva al Segurata. Pero antes de llevarse al Segurata, vino como otra jefa de pilotos o algo así. Y nos dice, como os veo otra vez, mirando a una mujer así, estaréis despedidos.
+
+Y al Segurata se lo lleva a la policía. Y a la chica. A la chica le dice fue.
+
 
 ## 2024-10-09 S rescatado
 
+Pues estaba en una especie de puerto, o casa. Era un juicio. Y... Oh, vale, era un juicio.
+
+Y yo tenía que decidir a un culpable. Pero antes... Bueno, y es como que le preguntaban a... No, yo daba un discurso, o alguien daba un discurso. Sobre la culpabilidad.
+
+Pero antes de empezar la juicio le preguntan cómo ha... Si era la abogada de la víctima o... Y dice, no se ha perdido el... Como las pruebas del pelo que culpabilizaba al culpable. Bueno. Y ahí se convierte en un... Una casa en el puerto y tira como un barco griego azul al agua.
+
+Y luego... Luego mi madre tira un montón de libretas. Y me cabreo con ella, porque esto contamina mucho. Y... Va a recogerlo, está por ahí una ex de Ferran y más amigas.
+
+Y como que viene... Se va acercando un huracán, empieza a haber viento. Y yo voy a coger las libretas, pero voy por un sitio que... Que me caigo al agua. Estoy subiendo, está el Toyota 206 por ahí.
+
+Subo, las libretas son de grande apoyo. Ando haciendo como flotando por el agua. Mi madre me intenta ayudar para subir al muelle.
+
+Subo. Y el huracán ya está... Con mucho viento y tal. Luego recogen dos libretas y la... Y la ex de Ferran y una amiga están por ahí en el agua.
+
+En plan... ¡Problema! Y yo con las libretas en la mano, le digo... Voy a seguir ordenando el puente y ya verás que hay unas escaleras y subes. Y... Papi, llámame los dos a la casa. Y me dice, por aquí no había entrado.
+
+Oye, me faltaba la entrevista contigo, ¿no? Y yo, sí, sí. ¿Ves? Dos pájaros contigo. Pero si tú venías... Estaba con Chito... No, Alex.
+
+A Torres Cuyons. Bueno, íbamos por el casco antiguo. Antes.
+
+Y... Estaba con Ciarruedas. Y estaba Raquel Jiménez por ahí. Y me sentía un poco incómodo.
+
+Aunque en verdad... Bueno, no me acuerdo la conversación. Por ahí íbamos a Ciarruedas. Y íbamos a Torres Cuyons.
+
+Había como... Un portiñito. En el que solíamos hacer trucos de skate o algo así. Y yo no iba a hacer nada con Ciarruedas.
+
+Que se había convertido en un carrito, en una arcadona. Subimos arriba. Y... Y yo tenía su... Bueno, es como que era de noche.
+
+Fuemos a dormir y había un chaval que se quejaba de algo. El dueño de la casa, no sé. Bueno.
+
+Dormimos ahí como tres en una cama. Pero... No sé, costaba dormir. Y nos fuimos superpronto.
+
+Bueno, antes de irnos. Era mediodía. Y se enchufó la tele.
+
+Y era en plan... Bueno, no pudo dormir para no estar aquí. Medio... Pero eso se convirtió en mi casa. O sea, en mi casa.
+
+Era mi casa, de mi casa. Mi casa, mi casa. Y... Está mi abuelo por ahí.
+
+Y se vio pasar las tres. Y dice... Ay, ¿no ha visto que se han pasado las tres? Y él... Cabrea, pero... Intentaba que no se notara. Tendríais que haberme avisado, no sé qué.
+
+Y fue como hacer la asistecilla de siempre. Pues estaba yendo con las zapas blancas que tengo. Por... No sé, era... Era un terreno que estaba lleno como de locales, de música.
+
+Y me daban mucho por fuera. Como eran los carteles. Y yo estaba leyendo algunos de ellos.
+
+Era como... Era de día. Solo se veía... ¿Cómo se llama? Bueno... Solo se veían los cachivaches. Que hacían luz de neón, pero no estaba conectado a la luz.
+
+Solo se veía, pues... Las... No sé, ¿cómo se llama? El soporte, el... Bueno. Pero era muy original todo. Había como muchos bafles.
+
+Y eran como muchos locales. Agrupados a las fueras de Castillo, en una esplanada. Pero parecía que estaba todo... No sé, no había mucha vida por ahí.
+
+Y yo buscaba un sitio donde acampar. Y iba caminando por ahí. Claro, quería buscar un sitio donde no se me... No hubiera peligro de derrumbamiento de ninguna ladera.
+
+Y acabé... Cerca de... Del Spar, aquí en Benicarlo. Yendo desde la carretera vieja. Hasta la avenida Puebla Luna.
+
+Iba por el césped al lado del río y... Me estaban sudando las zapas. Iba una farola y... Ahí una farola, una fuente. Y me la empiezo a limpiar.
+
+Pero me había manchado por dentro de agua. Y esas zapas. Y veo que en la avenida Puebla Luna va corriendo uno.
+
+Que mira así mal. Un poco chulo. Y yo... Y este pago... ¿Quién es? No sé qué.
+
+Bueno, me estoy poniendo zapas y veo que... Una ha cambiado de color y es negra. Y me he equivocado. Esta no era mi zapa.
+
+La cambio. Tarda un poco. Aparece otra vez el que iba corriendo.
+
+Pero esta vez desde otro sitio. Desde atrás. Ahora yo ignorándole.
+
+Me queda un trocito para llegar a la avenida Puebla Luna. Y aparecen como un grupo de señores y señoras. Por ahí.
+
+Y los intento... Claro. Iban de adelante y iban un poco lentos. Y yo... Quería pasarlos por algún sitio.
+
+No me dejan. Íbamos todos al spa. Que abría la homergadura.
+
+Y cuando estamos en la puerta no los consigue pasar. Y hay una chica por ahí. Que me dice algo.
+
+Tipo... ¿Querías pasarlos así? Sí. Bueno, pues... Consigo entrar con ella en Mercadona. Y es como que estamos haciendo nosotros la... Una compra.
+
+Pero yo pensando... No sé. Será raro, ¿no? Que hablando tan poco y sin conocernos... No vaya por libre. Entonces, bueno.
+
+Voy por libre. Estoy mirando como colonias. Pero no está la que yo quiero.
+
+Bueno. Y... Y cuando estoy en la sección de frutas... Aparece la escena del juicio aquel. Del pelo.
+
+
 ## 2025-01-07 S rescatado
+
+### 1
+
+Recuerdo súper poco, pero estaba genial este año. Recuerdo estar en una mansión abandonada con más gente, estábamos jugando un juego, pero era un poco raro. Éramos como cabezas.
+
+Realmente éramos puntos, estábamos a lo lejos y hacíamos movimientos no sé si nos disparábamos, y yo estaba lejos, y estaba jugando un poco mal porque tardaban en mover y no era muy preciso, y me lo decían pero yo, bueno, no pasa nada, jugamos, bueno, si lo sé, lo sé, estoy jugando mal, pero, bueno, no pasa nada, ganáis vosotros, ya ves, pero, bueno, recuerdo, era todo raro. Muy firme la sala. En un fondo había un equipo que se podía mover, pero cada equipo eran como puntos, cada persona un punto, y estaban en la pared, pero se podían mover por otros sitios, y apuntabas, disparabas, y había algo que rebotaba un poco, pero era todo guay.
+
+Bueno, es que no eran, no sé, no eran tres dimensiones, eso era como una mezcla rara de dos dimensiones. Sí. Luego era Jimmy McKeel, iba por la calle y empezaba a ver carteles con mi cara, y ponía esto no lo ha hecho la IA, pero Jimmy no estaba de dinero, y entraba siendo hecho Jimmy en su tienda de toda la vida, y me cabrea en plan, cómo puede ser que en mi barrio de toda la vida me hagan esto, no sé qué, y empiezo a dar la chapa a uno.
+
+Como si fuera la serie, empieza Jimmy McKeel a dar la chapa a la gente, y hay cambios de tomas, y de plan, Jimmy va a un sitio y da la chapa a alguien, y al final le dice un frase tipo, creo que te lo estoy diciendo a ti, no importa, tú solo eres un personaje secundario. Y acabo yendo a la playa a pescar, con una caña, y bueno pienso, no está a llover, pero no pasa nada, y ya he puesto el anzuelo y todo, no sé qué hago, la caña está en tensión, y estoy a punto de clavarme el anzuelo en la mano, de hecho me lo clavo un poco, pero bueno, consigo deshacer lo que estaba haciendo. Vale, toca otra vez para tirar el anzuelo, y había una pareja sentada en la barchica, en la orilla, y el chico le decía a la chica, pero señora, no sé qué, que está embarazada, y ella, pero tío, que no me llames señora, que somos amigos, que hemos tenido un bebé, pero no me llames señora, pero si siempre te he llamado señora, ya, pero es que no queda bien que me llames señora, es raro que me llames señora.
+
+Y yo pensando, bueno, da igual, es que en la intimidad hablan así, pero no quieren que, como que yo estoy aquí cerca escuchando la conversación, que de repente le ha dado vergüenza, y nada, me acerco por ahí y le doy la enhorabuena porque la señora tenía, está embarazada, y es como que nos hacemos amigos, y me invitan a ir a Cádiz de fiesta y tal, pero yo después de eso, me está preguntando, quizá, me está preguntando a mi interior, quizá debería ir, porque hay que estar, ¿no?, hay que hacer cosas, pero a la vez no apetece ir a casa, salir por sí solo.
+
+
+
+### 2
+
+Esto es del mismo sueño. Luego soñé, no sé si iba al plujo, pero llegaba a casa y salía a la puerta principal, acercaba un pitillo Mi casa era diferente, había una especie de terraza con... Con una... Hay como si dices... Ya, esto para apoyarse, bueno. Y escucho un ruido y había una chica que estaba haciendo fotos Y ahora veo, suena que suele ir al plujo, me la quedo mirando y yo estaba pensando, hostia, yo estoy en verdad por una foto Bueno, la ignoro, pero ella me miraba y no sé si me hizo alguna foto y en los vecinos Ella estaba haciendo fotos a una especie de globo de estotelio que estaba volando y me fijo y había alguien colgando y se acercaba a unos chalets y se acababa enganchando a esa persona en esa casa y no sé si pretendía hacer eso pero... Una escena divertida Y los vecinos, en el chalet de al lado, habían muchos niños y un adulto, y ese adulto les había comprado como, no sé, pistolas de... De estas con ventosas y me empezaron a disparar a mi mollón Jugando, obviamente, pero esto que... Tropecientas ventosas que venían hacia mí me daban y ahí me he intentado levantar y un poco torpe
+
+
+
+### 3
+
+Creo que dentro de la gente que disparaba esas ventosas estaba el hermano de Álvar y Álvar. O al igual, no estaban, pero como que pasaban con una furgoneta por delante. Entonces Álvar se bajaba, en plan, va, yo me quedo con esta gente que es divertida, no sé qué.
+
+Y aparecían más colegas y en verdad la situación parecía como si tuviéramos catorce años y estuviéramos saliendo por el pueblo, pero con veintiocho, o sea, chavales de veintiocho. Y vemos cómo se va en la furgoneta, ahí va el padre y el hermano de Álvar. Y el hermano de Álvar estaba como con la puerta del copiloto abierta, pues tenía una mini pasarela y estaba él de pie.
+
+Era un poco militar la postura, pero iba vestido normal. Y nosotros en plan, va, digo, hostia, que esa persona es policía. Sí, sí, sí.
+
+Espepéntico.
 
 ## 2025/01/14 Sueño lud
 
@@ -463,3 +674,5 @@ Porque me ha cogido su cuerpo. Pero... No se enfadó del todo.
 creo que no fué Rocío sino ([ptto]) con quién discutí
 
 
+
+## 202x sueño mal  no se  fecha
