@@ -239,6 +239,51 @@ creo que no fué Rocío sino ([ptto]) con quién discutí
 
 # to do 2 (rescatados)
 
+## 2025-02-09 
+
+### 1
+
+### 2?
+
+Estoy en una situación... Bueno, es como que... Estoy con un ordenador y... Y quiero... Vivir... Sin consecuencias. Aparte de él, de Foca. Y... No sé si pasa algo o qué, pero... Estoy como... En mi casa o en la biblioteca, no sé.
+
+Y... Y empiezan a ver como zombis. No está... Había entrado en algún sitio. Intenté comprobar la contraseña de la... De la entrada por internet, pero me... Me despisté.
+
+Y no la acabé comprando. Entonces, una chica... Me reclamó dinero, me lo iba a cobrar. Y yo, no, pues yo lo he hecho.
+
+Me dice, ah, sí, yo sí, mira. Y ella... Le cambió la cara porque pensaba que yo estaba intentando... Evitarme pagar, pero... Yo le dije que no, y entré en la app. Y desde el móvil, pues no... Me aclaró mucho.
+
+Pero recuerdo que no, al final no lo compré. Pero no pasa nada, porque... Ella se convierte en una especie de zombi. Y... Y me persigue, y yo... Y la re-bosteas.
+
+Y cada vez habían más zombis. Y más zombis. Y a mí solo se me ocurre... Escalar... En estanterías de papel... Eh, estanterías de libros.
+
+Y escalar arriba. Y pensé que ahí estoy seguro, pero abajo está lleno de zombis. Y les voy tirando libros... Bueno... Pero no se mueren.
+
+Y te vi pasar... El día así... Porque poco a poco fueron... Recuperándose las personas. Aunque había uno que estaba... Algunos que estaban muertos. Y otros seres vivos como un pájaro.
+
+Pero todo recobraba la vida. Y... Y al principio esto pasó con uno que me dijo... No me mates, no mates. He venido aquí para... No sé qué... Que no soy zombi ya.
+
+Solo quiero... Estar contigo. Que tú eres... No zombi. Y yo... Bueno, vale, confío.
+
+Y así, poco a poco... Iban viniendo todos... Los zombis. Y al final recuerdo, claro... Que había pedido algo... Vivir algo sin consecuencias.
+
+### 3?
+
+Creo que fue antes de ese sueño. Estaba soñando que estaba con Adri en mi habitación, jugando a algo. Como en una silla, jugando a un videojuego.
+
+Y escuchamos como que va a subir el abuelo. Y el abuelo sube. Entonces tiramos las sillas por el aire.
+
+Y entra el abuelo. Y se acaba el jugar. Como que necesita cuidados. 
+
+Cuidados tampoco, pero... Hará ruido, estará por medio, no se entrará nada. Y entra. Compartimos habitación, pero no cama.
+
+Cada uno en capas separadas, pero es como que compartimos habitación. Y... Y entra. Creo que va a coger un trapo.
+
+Y yo... ¿Cómo? Y yo... Sí, mira. Y cuando lo veo, en verdad no estaba sucio. Me había equivocado. 
+
+Había unos dibujitos. Entonces le digo... Bueno, se lo explico. Y él... No me acuerdo.
+
+
 ## 2025-02-13 sueño
 
 Sueño en cesta, pero antes había, seguía a una chica, supongo que a algún rato había, y se veía contenido, bueno, no sé, lleva con una moto en algún tipo de sabana, y, bueno, no, era una ciudad, no sé, una ciudad, y de repente empezaba a ver como, bueno, no sé, si era una moto, en verdad, o un coche, y fue por un terreno que era arenoso y lo podía calar, entonces bajaba en marcha, entonces empezaba como a acumularse algo encima de la tierra, y yo tenía que coger el coche de moto con las manos e ir andando, así caminando hasta, bueno, chafar una carretera, y veo como pasa un camión súper rápido por la carretera, también pasa lo mismo, había como una cosa, una flor o una hoja que se presentaba ahí encima, y veo un camión que va muy rápido por la carretera, y me imagino, no deberían saltar las flores, pero no saltaban, así que cojo la moto, me pongo en marcha, pero antes debía ponerme el reloj en la muñeca, y tengo también el móvil en la mano, y tengo algo más por ahí entre las manos, entonces me intento ponerme el reloj, pero viene una moto y yo me aparto como puedo, o sea, en un cruce, que veo como vienen dos, no en un cruce no, era como una S, la carretera hacía una S, y yo estaba justo, me venían de cara, me quería apartar, por si alguno se salía, se desviaba, pues que no me atropellara, y justo meto como una salida o entrada a un pueblecido, es donde pasa la moto que viene, y yo como que me aparto, y por el caminito ese, la moto se mete por el caminito ese, pero está viniendo un coche, sin las luces, y como que se medio toca y pop, y bueno, decido, yo me rollo y me voy, y veo que, no recuerdo bien, si yo persiguía a alguien, si alguien me persiguía a mí, o si otra persona persiguía a otro, pero me encuentro con uno, y yo le digo, pero que yo no soy el que te está persiguiendo, no he sido yo quien te ha dado, con, no sé yo, quien iba sin luces, o algo así, no sé, y pasa algo, y yo como, no sé, pero de repente, a ver, es como, de repente sí que era yo culpable, o sea, sí que había hecho algo, y el otro me tenía que perseguir, y lo que yo había hecho es, o sea, no sé, es como, mover una cosa de sitio de la otra persona, y luego no ponerlo bien, y la otra persona es como, la había cabreado,
@@ -264,13 +309,11 @@ Y estando yo en casa, me quitaba pelos de la espalda, pero era como estiraba, y 
 
 
 
+
 # to turboscribe (rescatados)
 
-## 2025-04-02 
-
-quizás este es la primera parte del 04-01
-
-## 2025-02-09 
+## 2025-04-02  - quizás éste es la primera parte del 04-01
+...
 
 ## 2025-02-01
 
