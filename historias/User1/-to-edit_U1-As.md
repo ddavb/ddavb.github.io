@@ -1,4 +1,4 @@
-# to do 1
+# -- to do 1
 
 ## 2025/01/14 Sueño lud
 
@@ -154,7 +154,6 @@ Y yo, bueno, pues es que se llama así, y yo estaba montando, y aparece [aP], y 
 
 ## 2025/04/16 sueño
 
-
 ### Inteo sueño 16.04.2025
 
 Venecia, examen de las Opus, Willy borracho, casa, Sevilla, ¿no? Luego estaba discutiendo con ([ptto]), tomaba prestado el cuerpo de Rocío. Había un bebé por ahí en la ventana y luego venían y se enfadaban, creo. Y ahora...
@@ -237,11 +236,47 @@ Porque me ha cogido su cuerpo. Pero... No se enfadó del todo.
 
 creo que no fué Rocío sino ([ptto]) con quién discutí
 
-# to do 2 (rescatados)
+# -- to do 2 (rescatados)
 
 ## 2025-02-09 
 
 ### 1
+
+Recuerdo que bajaba... Bueno, tenía que quedar con alguien. ¿Iba a la biblioteca? No. Estaba... Creo que salía de casa.
+
+Era... Eran las 11 y yo veía que era tarde. Y era tarde porque había... Iba a quedar con alguien. Aunque me dijo que no por la mañana.
+
+Que iba a ser por la tarde. Y aproveché ese momento para ir a la biblioteca. Y a la máquina de café.
+
+Y me pasa algo en la máquina. Eh... Creo que no va... Y hablo con la dependienta. Va a la máquina adentro.
+
+Se le hicieron café, pero lo que hace es darme un cambio en buenas pequeñas. Lo cojo como puedo con las manos. Se lo hace a la dependienta, que no me da café, sino que me da monedas.
+
+Y había una señora mayor... Aquí adelante de mí. Y... Creo que le relataba el mismo problema. Y... ¿Cómo era? No, la señora mayor todavía no estaba.
+
+Bueno, se lo digo a las dependientas. Me dicen si hay otra máquina afuera. Y si yo... Sí, ya lo sé.
+
+Y ya... Ya lo sabe. Mira cómo se lo sabe. Se lo sabe todo.
+
+Y me ha recordado un poco a la biblioteca. A la bibliotecaría. A la biblioteca de Nicarlo.
+
+De... Bueno... A la dependienta, creo. Y voy a la otra máquina. Y en la mano tenía dos piezas de Lego.
+
+Y... Y detrás de la máquina... Hay un mostrador. Y una dependienta. Y me dice... Vale, ¿quieres cambiar la pieza por no sé qué? Y yo... No, esto es para un café.
+
+Les tengo todas las piezas. Me dice... No sé si dice algo. Aparece de izquierda gente... Que les había pasado... Cosas.
+
+Por ejemplo, había una señora mayor... Que normalmente iba con sus hijos para explicar esto. Porque era muy mayor. Y sus hijos le ayudaban.
+
+Pero estaba sola. Pero a mí... Por algún motivo ya me lo había contado. Por eso me lo sabía.
+
+Y empieza a decir... Que... Ella quería decir que tenía la pieza y se la robaron. Y le genera un tipo de... De ansiedad o algo así. Y que no puede salir a la calle porque... Le da miedo.
+
+Pero yo lo veía y no... No lo... No estaba consiguiendo decirlo. Y había momentos que se quedaba en silencio. Y yo aprovecho para... Como... Como si... Haciendo unas preguntas clave.
+
+Voy haciendo preguntas clave. Y ella va recordando. Como para ayudarla a recordar.
+
+Mmm...
 
 ### 2?
 
@@ -295,9 +330,9 @@ y me persiguen, y yo me escapo, pero yo no sabía por qué me persiguían. y hay
 
 ## 2025-04-01 sueño
 
-### 1 buscar esta parte 1 ...
+### 1
 
-buscar esta parte 1 entre los audios de rescatar ...
+Estaba por Telepi y estaban todas las fuentes de agua públicas enchufadas y había una persona que estaba rellenando sus botellas y iba al coche a por más y iba cerrando los grifos y le echaba la bronca y al principio lo entendía pero cada vez que hacía algo él se enfadaba y acabamos discutiendo. Menudo estúpido en crídito, hijo de puta. Y bueno, no sé, chungasca.
 
 ### 2
 
@@ -310,10 +345,7 @@ Y estando yo en casa, me quitaba pelos de la espalda, pero era como estiraba, y 
 
 
 
-# to turboscribe (rescatados)
-
-## 2025-04-02  - quizás éste es la primera parte del 04-01
-...
+# -- to turboscribe (rescatados)
 
 ## 2025-02-01
 
