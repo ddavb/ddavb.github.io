@@ -1,4 +1,34 @@
-# -- to do 1
+## 2024-09-21 S rescatado
+
+### 1
+
+Vale, vamos a cenar, yo estaba eligiendo camiseta y tenía toda la cama llena de cosas que me iba probando y tal. Llegamos en coche, en familia, salíamos por ahí a cenar. Acababa en Madrid, con Bahén, dando vueltas por ahí.
+
+Queríamos ver a Escándalos Expósito en un garito, que fuimos una vez, y estaba como recordando la cabeza como si fuera la MTV. Videoclip de una banda de Escándalos Expósito. Vamos por un centro comercial.
+
+Yo pensaba que a las personas vestimos igual, pero veía a la gente y la gente era bastante... ¿Cómo se dice? Diferentes entre ellos, no sé. Y salgo del centro comercial, había como una terraza, en medio de la calle había un chocaos de coches. Y veo a David Cristian, que coge un coche y poco a poco se acerca a la terraza.
+
+Y el coche ahora es como una silla de ruedas, como un transformer, cuyo poder es ser una silla de ruedas y utilizar el coche para sentarse en la mesa sin utilizar silla. Yo era el dueño de un piso en el que había una fiesta, y llamar al timbre... ¿Cómo era? No, yo llamaba al timbre... No sé, era una persona que quería ligar, y era un chico y una chica, y luego que se repetía quiero con chico, chico, y salía una persona homosexual, y decía, yo quiero que si luego con alguien que tenga los ojos azules, va como dijo, quiero que tenga los ojos azules, porque eso me indica que tiene conocimiento, conocimiento de tener los ojos azules, era bastante cómico esa frase. Y luego otra vez con chico, chica, y no sé, estaba ahí por ahí la cantante, el homosexual creo que era venezolano.
+
+Y ya está. Subtítulos por la comunidad de Amara.org
+
+### 2
+
+Estaba como recordando el día de ayer, y recuerdo, pero esto no es de ayer, pero recuerdo que tenía un paquete de tabaco y pensé, no voy a fumar, entonces le he hecho un poco de tabaco adentro y lo dejé en un sitio, de casa, en una ventana, y entonces he pensado, hostia, eso aún sigue ahí, podía mirar a ver si no estaba mojado del todo para sacar algo de tabaco y liarme a un piti, y he pensado, no, no, no vas a hacer eso, porque luego te lo fumas y vuelves a empezar, entonces no pienses en el primer pitillo, piensa en el segundo, en el tercero y el cuarto y el quinto, así que no, cero pitis.
+
+### 3
+
+Pues estaba... iba cerca del Plough, creo, en el Alsoño. Y... Mierda, no hay agua. Iba a haber un ensayo de palo tomado y había como miembros nuevos, pero yo ahí entraba igual.
+
+Estaban como antes de tocar, haciendo cositas, yo iba por ahí, me apoyaba, por ahí me senté en un sitio, aparecía Okukala, habló de la historia de Juan, de Chonil. Y... pero creo que lo entendió mal y entonces se la conté. Y en ese momento pensé en comprar tabaco en un bar, creo que es... Ahí se enlaza con el audio que grabé antes.
+
+## 2024-09-23 S rescatado
+
+## 2024-09-27 S rescatado
+
+## 2024-10-09 S rescatado
+
+## 2025-01-07 S rescatado
 
 ## 2025/01/14 Sueño lud
 
@@ -13,6 +43,8 @@ Y yo estaba como yendo hacia afuera desde el chalet que era muy grande, muchas s
 Era como rayo videoclip. Y en algún momento estoy con Vine y estoy como mirando el móvil, creo, para enseñarle el vídeo que he grabado pero no lo encuentro. Y como que voy recreando otras escenas de fiesta pero que no es ese vídeo que hice.
 
 Y pasan muchas más cosas pero no me acuerdo, tío.
+
+## 2025-01-19 S rescatado
 
 ## 2025/01/23 Sueño ukraina
 
@@ -51,6 +83,183 @@ Y cada vez está más triste yo. Y... Acabé en una esquina llorando yo. Porque 
 Y vino alguien. Una chica. Era como mi hermana, pero no es mi hermana.
 
 Y me abrazó en plan... Jo, yo también. A mí también me da pena. No sé qué... Bueno, se acabó el sueño.
+
+## 2025-02-01 S rescatado
+
+Pues estaba como en el tren, en la estación, o en las vías, no me acuerdo. Había mucha gente y también estaba Bernie por allí. Y dijo algo como... No, espera, era una red social... Buah, era una red social. 
+
+A ver, el sueño. Red social, Bernie, estación de tren, cada uno por su lado. Pero yo me quedo en las vías.
+
+Nos disparan. Huyo. Y... A través de sus sótanos, como que voy a otras... A otros lugares del planeta.
+
+Eh... No sé, estaba viendo desde el móvil una red social. Estaba viendo la pantalla y justo en ese momento salía una chica. Y en la imagen se veían las tetas.
+
+Y justo en ese momento aparece como mi madre por al lado. Como en plan... Hijo, esto qué... Ayúdame a hacer esto, no sé qué tal. Y yo... Bueno, y quito el app.
+
+Entonces ella no lo ve y se va. Ahora me meto completamente dentro del app. Y es como... No sé.
+
+Lo mismo. Eh... Y estoy con Bernie. Y... Chateando.
+
+Y ella me dice algo, tipo... Yo creo que le envié mensaje y al final puso algo así, rollo guapa. Y me dijo si está... Tranquilo, porque el pasado está atrás. Y... Y ya está, es lo que dijo eso.
+
+Entonces... En vez de estar hablando por chat, estamos como en persona. Eh... Vamos a coger el tren. Aunque cada uno por su lado.
+
+Y ella se va. O sea, viene un tren. Y yo me espero tumbado ahí en el andén con más gente.
+
+Los de Valencia suben ahí. Y yo... Supongo que iba a Castellón. Va a venir Carlos.
+
+Y se va el tren y había súper poca gente. Y yo me quedo claro y tumbado. Y... Y al lado tenía a otra persona.
+
+Pero viene... Alguien, no sé, un mafioso o algo. Y me pega un tiro. Y el que tenía sentado hablando me dice... No fienjas, eh.
+
+Que será peor. O sea, si te da, te da. Y yo... Me ha dado... Al corazón.
+
+Y entonces el otro, como que me ha dado al corazón. El resto de disparos se los da al otro. Y el otro... Oh... Entonces se queda sin balas y el matón ese se va al asesino.
+
+Y... Y el que tenía al lado, el cabrón, dice... Bueno, te dije lo de fingir, pero... Y se empieza a quitar las balas con un utensilio. Unas pienzas. Y dice que llevaba chaleco antibalas.
+
+Y... Me dice, pero... Bueno, tú lo has hecho bien, lo de no fingir. Y yo... No me dio en el corazón, me dio en el hígado. Y saco... Un llavero-navaja y... Como le arrajo el cuello.
+
+O sea, lo giro, hago una cosa rara y... Buah, me lo cargo. Y no sé por qué hice eso. Pero... Como había cometido un asesinato... Eh... Y ahora, de repente... Eso antes era unos andenes de tren.
+
+Ahora ya no. Es como... El extraerradio de una gran ciudad. Pues asalto... O sea, voy corriendo, paso por la calle de gente.
+
+Y yo pensando, bueno, mejor que no me reconozcan. Y... Cojo... ¡Uia! Una motobros. Salto encima.
+
+Como que voy así, como si fuera un... Fuego... Un Takata. Mientras intento girar la llave, ver que se enchufa. Darle gas.
+
+Lleva pedales. Estuve pedaleando un ratillo. Pero por fin la conecto y voy... Con la moto por ahí.
+
+Intentando no piñármela. Y tenía que ir a la ciudad. A un sótano de algún edificio.
+
+Es decir... No tenía que entrar a un edificio e ir al sótano. Tenía que ir al sótano... Para cuando saliera del sótano... Estar en una ciudad diferente. Y eso hice.
+
+Fui... A un sótano de la ciudad. No sé cómo. Pero fui y abrí la puerta.
+
+Y en plan, así mirando... A ver... A ver de dónde acabo. Oh, espera, espera. Guau.
+
+Puede que me haya dejado algo. Porque... Había una escena en la que estaba... En un piso de un edificio. Y empezaba a entrar gente.
+
+Estaba yo y mucha más gente. Y más gente. Y querían matarnos... Otro grupo de gente.
+
+Y ellos, la mayoría, nos estaban encerrando en... En cámaras. En una cámara dentro del edificio. Pero yo consigo salir y darle a la... A la alarma.
+
+Bajando las escaleras. Bajar las pulsaciones para que... Bueno, nadie sepa que yo pulsa la alarma. O que yo pertenecía a ese grupo.
+
+O al que nos perseguían. Yo iba con traje. Y el grupo y los que nos iban a matar también.
+
+Y cuando llego abajo a las vías del tren, creo... Es cuando... Mis compañeros me dicen en plan... Tío, nos has salvado la vida. O sea, por haber pulsado la llave, no sé qué, tal cual. Y al chico al que maté... Fue... Fue uno de mis compañeros, pero que me había delatado.
+
+Que nos había delatado, creo. Y por eso lo maté. O algo así.
+
+Bueno. Sótano. Aeropuerta.
+
+Y en ese momento hay un mexicano. Y en ese mismo instante pienso... Hostia, por aquí se iba a fugar. Ese cabrón.
+
+Entonces aquí está su familia esperándolo. Entonces me di... El mexicano se me dice... Vaya, ¿y dónde está, no sé, el chico este? Y yo... Sí, ahora viene, porque nos hemos salvado. Pero me ha dicho que vaya viniendo yo... Mentira.
+
+Y voy haciéndole... Voy haciéndoles el hígado intentando escapar. Y hay tiroteos. Claro, yo en la mochila llevaba la motocross, un bajo y la pistola.
+
+Hago como un amago de... Volver a ir al sótano, porque... Salir de ese edificio iba a ser muy complicado. Pero me ven, me siguen. Tengo un mexicano al lado todo el rato.
+
+Y aprovecho un momento de despiste, saco la pistola de la mochila, veo que está cargada. Le des disparo, se quedan así como un poco lentitos. Le disparo a la cabeza a uno y... Es como que sigue vivo, pero... Tontet.
+
+Y ese otro empieza a disparar al que tenía al lado. Y acaban los dos al suelo. Y es como, no sé, un poco videojuego. 
+
+Voy saliendo del edificio. Bueno, era la primera planta. Y solo quedaban dos personas más.
+
+No recuerdo si el último acabó conmigo o qué, pero me desperté.
+
+
+## 2025-02-09 sueño rescatado
+
+### 1
+
+Recuerdo que bajaba... Bueno, tenía que quedar con alguien. ¿Iba a la biblioteca? No. Estaba... Creo que salía de casa.
+
+Era... Eran las 11 y yo veía que era tarde. Y era tarde porque había... Iba a quedar con alguien. Aunque me dijo que no por la mañana.
+
+Que iba a ser por la tarde. Y aproveché ese momento para ir a la biblioteca. Y a la máquina de café.
+
+Y me pasa algo en la máquina. Eh... Creo que no va... Y hablo con la dependienta. Va a la máquina adentro.
+
+Se le hicieron café, pero lo que hace es darme un cambio en buenas pequeñas. Lo cojo como puedo con las manos. Se lo hace a la dependienta, que no me da café, sino que me da monedas.
+
+Y había una señora mayor... Aquí adelante de mí. Y... Creo que le relataba el mismo problema. Y... ¿Cómo era? No, la señora mayor todavía no estaba.
+
+Bueno, se lo digo a las dependientas. Me dicen si hay otra máquina afuera. Y si yo... Sí, ya lo sé.
+
+Y ya... Ya lo sabe. Mira cómo se lo sabe. Se lo sabe todo.
+
+Y me ha recordado un poco a la biblioteca. A la bibliotecaría. A la biblioteca de Nicarlo.
+
+De... Bueno... A la dependienta, creo. Y voy a la otra máquina. Y en la mano tenía dos piezas de Lego.
+
+Y... Y detrás de la máquina... Hay un mostrador. Y una dependienta. Y me dice... Vale, ¿quieres cambiar la pieza por no sé qué? Y yo... No, esto es para un café.
+
+Les tengo todas las piezas. Me dice... No sé si dice algo. Aparece de izquierda gente... Que les había pasado... Cosas.
+
+Por ejemplo, había una señora mayor... Que normalmente iba con sus hijos para explicar esto. Porque era muy mayor. Y sus hijos le ayudaban.
+
+Pero estaba sola. Pero a mí... Por algún motivo ya me lo había contado. Por eso me lo sabía.
+
+Y empieza a decir... Que... Ella quería decir que tenía la pieza y se la robaron. Y le genera un tipo de... De ansiedad o algo así. Y que no puede salir a la calle porque... Le da miedo.
+
+Pero yo lo veía y no... No lo... No estaba consiguiendo decirlo. Y había momentos que se quedaba en silencio. Y yo aprovecho para... Como... Como si... Haciendo unas preguntas clave.
+
+Voy haciendo preguntas clave. Y ella va recordando. Como para ayudarla a recordar.
+
+Mmm...
+
+### 2?
+
+Estoy en una situación... Bueno, es como que... Estoy con un ordenador y... Y quiero... Vivir... Sin consecuencias. Aparte de él, de Foca. Y... No sé si pasa algo o qué, pero... Estoy como... En mi casa o en la biblioteca, no sé.
+
+Y... Y empiezan a ver como zombis. No está... Había entrado en algún sitio. Intenté comprobar la contraseña de la... De la entrada por internet, pero me... Me despisté.
+
+Y no la acabé comprando. Entonces, una chica... Me reclamó dinero, me lo iba a cobrar. Y yo, no, pues yo lo he hecho.
+
+Me dice, ah, sí, yo sí, mira. Y ella... Le cambió la cara porque pensaba que yo estaba intentando... Evitarme pagar, pero... Yo le dije que no, y entré en la app. Y desde el móvil, pues no... Me aclaró mucho.
+
+Pero recuerdo que no, al final no lo compré. Pero no pasa nada, porque... Ella se convierte en una especie de zombi. Y... Y me persigue, y yo... Y la re-bosteas.
+
+Y cada vez habían más zombis. Y más zombis. Y a mí solo se me ocurre... Escalar... En estanterías de papel... Eh, estanterías de libros.
+
+Y escalar arriba. Y pensé que ahí estoy seguro, pero abajo está lleno de zombis. Y les voy tirando libros... Bueno... Pero no se mueren.
+
+Y te vi pasar... El día así... Porque poco a poco fueron... Recuperándose las personas. Aunque había uno que estaba... Algunos que estaban muertos. Y otros seres vivos como un pájaro.
+
+Pero todo recobraba la vida. Y... Y al principio esto pasó con uno que me dijo... No me mates, no mates. He venido aquí para... No sé qué... Que no soy zombi ya.
+
+Solo quiero... Estar contigo. Que tú eres... No zombi. Y yo... Bueno, vale, confío.
+
+Y así, poco a poco... Iban viniendo todos... Los zombis. Y al final recuerdo, claro... Que había pedido algo... Vivir algo sin consecuencias.
+
+### 3?
+
+Creo que fue antes de ese sueño. Estaba soñando que estaba con Adri en mi habitación, jugando a algo. Como en una silla, jugando a un videojuego.
+
+Y escuchamos como que va a subir el abuelo. Y el abuelo sube. Entonces tiramos las sillas por el aire.
+
+Y entra el abuelo. Y se acaba el jugar. Como que necesita cuidados. 
+
+Cuidados tampoco, pero... Hará ruido, estará por medio, no se entrará nada. Y entra. Compartimos habitación, pero no cama.
+
+Cada uno en capas separadas, pero es como que compartimos habitación. Y... Y entra. Creo que va a coger un trapo.
+
+Y yo... ¿Cómo? Y yo... Sí, mira. Y cuando lo veo, en verdad no estaba sucio. Me había equivocado. 
+
+Había unos dibujitos. Entonces le digo... Bueno, se lo explico. Y él... No me acuerdo.
+
+
+## 2025-02-13 sueño rescatado
+
+Sueño en cesta, pero antes había, seguía a una chica, supongo que a algún rato había, y se veía contenido, bueno, no sé, lleva con una moto en algún tipo de sabana, y, bueno, no, era una ciudad, no sé, una ciudad, y de repente empezaba a ver como, bueno, no sé, si era una moto, en verdad, o un coche, y fue por un terreno que era arenoso y lo podía calar, entonces bajaba en marcha, entonces empezaba como a acumularse algo encima de la tierra, y yo tenía que coger el coche de moto con las manos e ir andando, así caminando hasta, bueno, chafar una carretera, y veo como pasa un camión súper rápido por la carretera, también pasa lo mismo, había como una cosa, una flor o una hoja que se presentaba ahí encima, y veo un camión que va muy rápido por la carretera, y me imagino, no deberían saltar las flores, pero no saltaban, así que cojo la moto, me pongo en marcha, pero antes debía ponerme el reloj en la muñeca, y tengo también el móvil en la mano, y tengo algo más por ahí entre las manos, entonces me intento ponerme el reloj, pero viene una moto y yo me aparto como puedo, o sea, en un cruce, que veo como vienen dos, no en un cruce no, era como una S, la carretera hacía una S, y yo estaba justo, me venían de cara, me quería apartar, por si alguno se salía, se desviaba, pues que no me atropellara, y justo meto como una salida o entrada a un pueblecido, es donde pasa la moto que viene, y yo como que me aparto, y por el caminito ese, la moto se mete por el caminito ese, pero está viniendo un coche, sin las luces, y como que se medio toca y pop, y bueno, decido, yo me rollo y me voy, y veo que, no recuerdo bien, si yo persiguía a alguien, si alguien me persiguía a mí, o si otra persona persiguía a otro, pero me encuentro con uno, y yo le digo, pero que yo no soy el que te está persiguiendo, no he sido yo quien te ha dado, con, no sé yo, quien iba sin luces, o algo así, no sé, y pasa algo, y yo como, no sé, pero de repente, a ver, es como, de repente sí que era yo culpable, o sea, sí que había hecho algo, y el otro me tenía que perseguir, y lo que yo había hecho es, o sea, no sé, es como, mover una cosa de sitio de la otra persona, y luego no ponerlo bien, y la otra persona es como, la había cabreado,
+
+y me persiguen, y yo me escapo, pero yo no sabía por qué me persiguían. y hay una tercera persona, sí, o sea, siguiendo todo esto que también, intentaba echarle la culpa a esa tercera persona, pero mientras lo hacía, estábamos como dando vueltas en casa del tío que me perseguía, y yo sin querer iba moviendo más cosas, movía el cesto, y el tío se volvió loco:
+
+- pero a ver!, estás haciendo cosas aquí, estás alterando todo, noseq ... !
+
 
 ## 2025/03/14 Sueño
 
@@ -104,6 +313,23 @@ Bueno, pues estoy limpiando un cenicero y veo que llueve mucho. Realmente vacío
 Y en todas las habitaciones había llovido dentro de la habitación. Y eso pasó porque había llovido tanto que en tu casa, que tenía la forma de mi casa, en la parte de arriba hay una salida de agua que si se tapona se acumula mucha agua. Ahí.
 
 Y se había taponado esa salida de agua y se había acumulado tanta agua que estaban los techos. Los techos llovían un poquito.
+
+
+
+## 2025-04-01 sueño rescatado
+
+### 1
+
+Estaba por Telepi y estaban todas las fuentes de agua públicas enchufadas y había una persona que estaba rellenando sus botellas y iba al coche a por más y iba cerrando los grifos y le echaba la bronca y al principio lo entendía pero cada vez que hacía algo él se enfadaba y acabamos discutiendo. Menudo estúpido en crídito, hijo de puta. Y bueno, no sé, chungasca.
+
+### 2
+
+Y antes de todo eso, yo vivía en una casa, y no sé por qué estaba hablando con algunos latinos, una familia latina. Mis padres no estaban, y yo fui con ellos a hacer algo, y cogieron nuestro coche. Y yo, oye, pero este fin de año están mis padres, pero el coche me lo quedo yo.
+
+Me dicen, ay, ¿cómo llevaremos a mi abuela el coche? Y yo pensando, pues tío, no sé, no es mi problema. Y al llegar a casa, me di cuenta de que se habían llevado las llaves del coche, y yo intentando enviarles un whatsapp, pero la última actualización del teclado de whatsapp era una mierda. Bueno, al final les conseguí un mensaje en plan, esto que habéis hecho me ha cabreado, no sé qué, pero el coche no me lo devolveré.
+
+Y estando yo en casa, me quitaba pelos de la espalda, pero era como estiraba, y era un fideo súper largo. Y lo hice varias veces, y cuando llegaron mis padres le eché la bronca, porque me quité uno tan largo, los iba dejando encima de una cama, como en plan, no sé, para que vean que no era mentira. Había uno tan largo que al final habían como restos de pescado, y yo en plan, padre, tío, yo creo que el pescado que comemos tiene anisakis y gusanos, y mira, tío, bueno, eso.
+
 
 
 ## 2025/04/07 Sueño
@@ -236,129 +462,4 @@ Porque me ha cogido su cuerpo. Pero... No se enfadó del todo.
 
 creo que no fué Rocío sino ([ptto]) con quién discutí
 
-# -- to do 2 (rescatados)
 
-## 2025-02-09 
-
-### 1
-
-Recuerdo que bajaba... Bueno, tenía que quedar con alguien. ¿Iba a la biblioteca? No. Estaba... Creo que salía de casa.
-
-Era... Eran las 11 y yo veía que era tarde. Y era tarde porque había... Iba a quedar con alguien. Aunque me dijo que no por la mañana.
-
-Que iba a ser por la tarde. Y aproveché ese momento para ir a la biblioteca. Y a la máquina de café.
-
-Y me pasa algo en la máquina. Eh... Creo que no va... Y hablo con la dependienta. Va a la máquina adentro.
-
-Se le hicieron café, pero lo que hace es darme un cambio en buenas pequeñas. Lo cojo como puedo con las manos. Se lo hace a la dependienta, que no me da café, sino que me da monedas.
-
-Y había una señora mayor... Aquí adelante de mí. Y... Creo que le relataba el mismo problema. Y... ¿Cómo era? No, la señora mayor todavía no estaba.
-
-Bueno, se lo digo a las dependientas. Me dicen si hay otra máquina afuera. Y si yo... Sí, ya lo sé.
-
-Y ya... Ya lo sabe. Mira cómo se lo sabe. Se lo sabe todo.
-
-Y me ha recordado un poco a la biblioteca. A la bibliotecaría. A la biblioteca de Nicarlo.
-
-De... Bueno... A la dependienta, creo. Y voy a la otra máquina. Y en la mano tenía dos piezas de Lego.
-
-Y... Y detrás de la máquina... Hay un mostrador. Y una dependienta. Y me dice... Vale, ¿quieres cambiar la pieza por no sé qué? Y yo... No, esto es para un café.
-
-Les tengo todas las piezas. Me dice... No sé si dice algo. Aparece de izquierda gente... Que les había pasado... Cosas.
-
-Por ejemplo, había una señora mayor... Que normalmente iba con sus hijos para explicar esto. Porque era muy mayor. Y sus hijos le ayudaban.
-
-Pero estaba sola. Pero a mí... Por algún motivo ya me lo había contado. Por eso me lo sabía.
-
-Y empieza a decir... Que... Ella quería decir que tenía la pieza y se la robaron. Y le genera un tipo de... De ansiedad o algo así. Y que no puede salir a la calle porque... Le da miedo.
-
-Pero yo lo veía y no... No lo... No estaba consiguiendo decirlo. Y había momentos que se quedaba en silencio. Y yo aprovecho para... Como... Como si... Haciendo unas preguntas clave.
-
-Voy haciendo preguntas clave. Y ella va recordando. Como para ayudarla a recordar.
-
-Mmm...
-
-### 2?
-
-Estoy en una situación... Bueno, es como que... Estoy con un ordenador y... Y quiero... Vivir... Sin consecuencias. Aparte de él, de Foca. Y... No sé si pasa algo o qué, pero... Estoy como... En mi casa o en la biblioteca, no sé.
-
-Y... Y empiezan a ver como zombis. No está... Había entrado en algún sitio. Intenté comprobar la contraseña de la... De la entrada por internet, pero me... Me despisté.
-
-Y no la acabé comprando. Entonces, una chica... Me reclamó dinero, me lo iba a cobrar. Y yo, no, pues yo lo he hecho.
-
-Me dice, ah, sí, yo sí, mira. Y ella... Le cambió la cara porque pensaba que yo estaba intentando... Evitarme pagar, pero... Yo le dije que no, y entré en la app. Y desde el móvil, pues no... Me aclaró mucho.
-
-Pero recuerdo que no, al final no lo compré. Pero no pasa nada, porque... Ella se convierte en una especie de zombi. Y... Y me persigue, y yo... Y la re-bosteas.
-
-Y cada vez habían más zombis. Y más zombis. Y a mí solo se me ocurre... Escalar... En estanterías de papel... Eh, estanterías de libros.
-
-Y escalar arriba. Y pensé que ahí estoy seguro, pero abajo está lleno de zombis. Y les voy tirando libros... Bueno... Pero no se mueren.
-
-Y te vi pasar... El día así... Porque poco a poco fueron... Recuperándose las personas. Aunque había uno que estaba... Algunos que estaban muertos. Y otros seres vivos como un pájaro.
-
-Pero todo recobraba la vida. Y... Y al principio esto pasó con uno que me dijo... No me mates, no mates. He venido aquí para... No sé qué... Que no soy zombi ya.
-
-Solo quiero... Estar contigo. Que tú eres... No zombi. Y yo... Bueno, vale, confío.
-
-Y así, poco a poco... Iban viniendo todos... Los zombis. Y al final recuerdo, claro... Que había pedido algo... Vivir algo sin consecuencias.
-
-### 3?
-
-Creo que fue antes de ese sueño. Estaba soñando que estaba con Adri en mi habitación, jugando a algo. Como en una silla, jugando a un videojuego.
-
-Y escuchamos como que va a subir el abuelo. Y el abuelo sube. Entonces tiramos las sillas por el aire.
-
-Y entra el abuelo. Y se acaba el jugar. Como que necesita cuidados. 
-
-Cuidados tampoco, pero... Hará ruido, estará por medio, no se entrará nada. Y entra. Compartimos habitación, pero no cama.
-
-Cada uno en capas separadas, pero es como que compartimos habitación. Y... Y entra. Creo que va a coger un trapo.
-
-Y yo... ¿Cómo? Y yo... Sí, mira. Y cuando lo veo, en verdad no estaba sucio. Me había equivocado. 
-
-Había unos dibujitos. Entonces le digo... Bueno, se lo explico. Y él... No me acuerdo.
-
-
-## 2025-02-13 sueño
-
-Sueño en cesta, pero antes había, seguía a una chica, supongo que a algún rato había, y se veía contenido, bueno, no sé, lleva con una moto en algún tipo de sabana, y, bueno, no, era una ciudad, no sé, una ciudad, y de repente empezaba a ver como, bueno, no sé, si era una moto, en verdad, o un coche, y fue por un terreno que era arenoso y lo podía calar, entonces bajaba en marcha, entonces empezaba como a acumularse algo encima de la tierra, y yo tenía que coger el coche de moto con las manos e ir andando, así caminando hasta, bueno, chafar una carretera, y veo como pasa un camión súper rápido por la carretera, también pasa lo mismo, había como una cosa, una flor o una hoja que se presentaba ahí encima, y veo un camión que va muy rápido por la carretera, y me imagino, no deberían saltar las flores, pero no saltaban, así que cojo la moto, me pongo en marcha, pero antes debía ponerme el reloj en la muñeca, y tengo también el móvil en la mano, y tengo algo más por ahí entre las manos, entonces me intento ponerme el reloj, pero viene una moto y yo me aparto como puedo, o sea, en un cruce, que veo como vienen dos, no en un cruce no, era como una S, la carretera hacía una S, y yo estaba justo, me venían de cara, me quería apartar, por si alguno se salía, se desviaba, pues que no me atropellara, y justo meto como una salida o entrada a un pueblecido, es donde pasa la moto que viene, y yo como que me aparto, y por el caminito ese, la moto se mete por el caminito ese, pero está viniendo un coche, sin las luces, y como que se medio toca y pop, y bueno, decido, yo me rollo y me voy, y veo que, no recuerdo bien, si yo persiguía a alguien, si alguien me persiguía a mí, o si otra persona persiguía a otro, pero me encuentro con uno, y yo le digo, pero que yo no soy el que te está persiguiendo, no he sido yo quien te ha dado, con, no sé yo, quien iba sin luces, o algo así, no sé, y pasa algo, y yo como, no sé, pero de repente, a ver, es como, de repente sí que era yo culpable, o sea, sí que había hecho algo, y el otro me tenía que perseguir, y lo que yo había hecho es, o sea, no sé, es como, mover una cosa de sitio de la otra persona, y luego no ponerlo bien, y la otra persona es como, la había cabreado,
-
-y me persiguen, y yo me escapo, pero yo no sabía por qué me persiguían. y hay una tercera persona, sí, o sea, siguiendo todo esto que también, intentaba echarle la culpa a esa tercera persona, pero mientras lo hacía, estábamos como dando vueltas en casa del tío que me perseguía, y yo sin querer iba moviendo más cosas, movía el cesto, y el tío se volvió loco:
-
-- pero a ver!, estás haciendo cosas aquí, estás alterando todo, noseq ... !
-
-
-## 2025-04-01 sueño
-
-### 1
-
-Estaba por Telepi y estaban todas las fuentes de agua públicas enchufadas y había una persona que estaba rellenando sus botellas y iba al coche a por más y iba cerrando los grifos y le echaba la bronca y al principio lo entendía pero cada vez que hacía algo él se enfadaba y acabamos discutiendo. Menudo estúpido en crídito, hijo de puta. Y bueno, no sé, chungasca.
-
-### 2
-
-Y antes de todo eso, yo vivía en una casa, y no sé por qué estaba hablando con algunos latinos, una familia latina. Mis padres no estaban, y yo fui con ellos a hacer algo, y cogieron nuestro coche. Y yo, oye, pero este fin de año están mis padres, pero el coche me lo quedo yo.
-
-Me dicen, ay, ¿cómo llevaremos a mi abuela el coche? Y yo pensando, pues tío, no sé, no es mi problema. Y al llegar a casa, me di cuenta de que se habían llevado las llaves del coche, y yo intentando enviarles un whatsapp, pero la última actualización del teclado de whatsapp era una mierda. Bueno, al final les conseguí un mensaje en plan, esto que habéis hecho me ha cabreado, no sé qué, pero el coche no me lo devolveré.
-
-Y estando yo en casa, me quitaba pelos de la espalda, pero era como estiraba, y era un fideo súper largo. Y lo hice varias veces, y cuando llegaron mis padres le eché la bronca, porque me quité uno tan largo, los iba dejando encima de una cama, como en plan, no sé, para que vean que no era mentira. Había uno tan largo que al final habían como restos de pescado, y yo en plan, padre, tío, yo creo que el pescado que comemos tiene anisakis y gusanos, y mira, tío, bueno, eso.
-
-
-
-
-# -- to turboscribe (rescatados)
-
-## 2025-02-01
-
-## 2025-01-19
-
-## 2025-01-07 
-
-## 2024-10-09
-
-## 2024-09-27
-
-## 2024-09-23
-
-## 2024-09-21
-
-## 2024-09-20
