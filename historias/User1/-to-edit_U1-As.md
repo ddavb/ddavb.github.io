@@ -6,11 +6,10 @@ Vale, vamos a cenar, yo estaba eligiendo camiseta y tenía toda la cama llena de
 
 Queríamos ver a Escándalos Expósito en un garito, que fuimos una vez, y estaba como recordando la cabeza como si fuera la MTV. Videoclip de una banda de Escándalos Expósito. Vamos por un centro comercial.
 
-Yo pensaba que a las personas vestimos igual, pero veía a la gente y la gente era bastante... ¿Cómo se dice? Diferentes entre ellos, no sé. Y salgo del centro comercial, había como una terraza, en medio de la calle había un chocaos de coches. Y veo a David Cristian, que coge un coche y poco a poco se acerca a la terraza.
+Yo pensaba que a las personas vestimos igual, pero veía a la gente y la gente era bastante... ¿Cómo se dice? Diferentes entre ellos, no sé. Y salgo del centro comercial, había como una terraza, en medio de la calle había un chocaos de coches. Y veo a [aDCr], que coge un coche y poco a poco se acerca a la terraza.
 
 Y el coche ahora es como una silla de ruedas, como un transformer, cuyo poder es ser una silla de ruedas y utilizar el coche para sentarse en la mesa sin utilizar silla. Yo era el dueño de un piso en el que había una fiesta, y llamar al timbre... ¿Cómo era? No, yo llamaba al timbre... No sé, era una persona que quería ligar, y era un chico y una chica, y luego que se repetía quiero con chico, chico, y salía una persona homosexual, y decía, yo quiero que si luego con alguien que tenga los ojos azules, va como dijo, quiero que tenga los ojos azules, porque eso me indica que tiene conocimiento, conocimiento de tener los ojos azules, era bastante cómico esa frase. Y luego otra vez con chico, chica, y no sé, estaba ahí por ahí la cantante, el homosexual creo que era venezolano.
 
-Y ya está. Subtítulos por la comunidad de Amara.org
 
 ### 2
 
@@ -18,13 +17,13 @@ Estaba como recordando el día de ayer, y recuerdo, pero esto no es de ayer, per
 
 ### 3
 
-Pues estaba... iba cerca del Plough, creo, en el Alsoño. Y... Mierda, no hay agua. Iba a haber un ensayo de palo tomado y había como miembros nuevos, pero yo ahí entraba igual.
+Pues estaba... iba cerca del Plug, creo, en el Alsoño. Y... Mierda, no hay agua. Iba a haber un ensayo de palo tomado y había como miembros nuevos, pero yo ahí entraba igual.
 
 Estaban como antes de tocar, haciendo cositas, yo iba por ahí, me apoyaba, por ahí me senté en un sitio, aparecía Okukala, habló de la historia de Juan, de Chonil. Y... pero creo que lo entendió mal y entonces se la conté. Y en ese momento pensé en comprar tabaco en un bar, creo que es... Ahí se enlaza con el audio que grabé antes.
 
-## 2024-09-23 S rescatado
+## 2024-09-23 Terror
 
-Yo soñé que iba con la Megal a Peñíscola con sus amigos. Habían diferentes escenas. Y ella quería ser con sus amigos y yo tenía que ser con algunos de ellos.
+Yo soñé que iba con la [eMC] a Peñíscola con sus amigos. Habían diferentes escenas. Y ella quería ser con sus amigos y yo tenía que ser con algunos de ellos.
 
 Eran latinos y yo no me aclaraba. No me aclaraba para nada. Y es como que en algún momento estaban sobre Peñis y yo me fui.
 
@@ -34,7 +33,7 @@ Había como gente. Y yo me acuerdo que en ese momento, en ese momento me acuerdo
 
 Pero veo que no me da tiempo y digo, bueno, pues luego cerraré en casa. Y el grupito de Uma como... Como... Eran como inadaptados, que estaban por ahí. Mirame uno a ellos y saco la guitarra y toco.
 
-Pero yo a la vez también intentaba mandarle whatsapps a Michelle, como en plan... Que me fui, no te enfades. No sé. Y en algún momento leí los whatsapps.
+Pero yo a la vez también intentaba mandarle whatsapps a [eMC], como en plan... Que me fui, no te enfades. No sé. Y en algún momento leí los whatsapps.
 
 No sé, no tenía mucho sentido. Me equivocaba en palabras. Me costaba escribir muchísimo en whatsapp.
 
@@ -44,29 +43,31 @@ Y en Peñis antes yo tenía una mochila con cosas. Íbamos a algún local por ah
 
 Bueno. Y al final... No era fin de año. Pero lo que sea lo celebraba entre casa y los de Uma.
 
-Luego... ¿Cómo era? Voy a casa de una amiga. Un chalet. Y enfrente vive Emegal.
-
+Luego... ¿Cómo era? Voy a casa de una amiga. Un chalet. Y enfrente vive [eMC].
 Y tiene dos bebés. Bueno, dos niños, no sé. Seis, cinco años.
 
-Veo como ella sale de su casa. Desde la casa de esta chica. Veo como ella sale de su casa.
-
-Dos chiquillos como que... Le cogen... Y le empujan así como para llamar la atención. Y ella... Está haciendo cosas. Y... Se le fue la pinza, tío.
+Veo, desde la casa de esta chica, como ella sale de su casa. Veo como ella sale de su casa.
+Los chiquillos como que... Le cogen... Y le empujan flojo así como para llamar la atención. Y ella... Está haciendo cosas. Y... Se le fue la pinza, tío.
 
 Porque al verme a mí con otra chica... Es como que vino a esa casa... Se convirtió en un personaje de Breaking Bad. Tenía como un machete. Entró por la puerta a la fuerza.
 
 Y... Y sí, a ella la mata. A mí me dejaba... Un poco maribundo. Pero es que se le fue la cabeza.
 
-Y luego estaba... Como sentada ahí. En plan... Va, ahora te toca a ti. Y yo veo un plato y... Y se lo... Reviento en la cabeza.
+Luego estaba... sentada. Insinuaba: Va, ahora te toca a ti.
 
-Y ella... No, así no. Cojo otro plato. Pero se me va... No, no le doy.
+Quería que hicieras tu el mal. Y yo veo un plato, me daba miedo, y... Y se lo reviento en la cabeza.
+
+Y ella impasible, dice: No, así no.
+
+Yo cojo otro plato, intento noquearla pero se me va ... No, no le doy.
 
 Voy a coger otro. Cojo otro y le doy, pero... Era... Era inútil. Y yo estaba ahí tirándole platos.
 
 Entonces ella coge, se va al café marrón. A hacer algo. Y yo intento tirar un frisbee.
 
-No consigo... Herirla. Y me voy corriendo a las delicias. Para decirle a la gente que llame a la policía... Que ha habido un asesinato y no sé qué y tal.
+No consigo... Herirla. Y me voy corriendo a las delicias. Para decirle a la gente que llame a la policía... Que ha habido un asesinato y me siento amenazado
 
-Y desde ahí se veía el marrón. Y... Y yo me hice... Vamos a hacer mejor un 061. Porque... Todavía se ven... Los hechos de... No sé qué.
+Desde ahí se vé el marrón. Y yo me hice... Vamos a hacer mejor un 061. Porque... Todavía se ven... Los hechos de... No sé qué.
 
 Y era como... Llamar a la policía, pero... Con vídeo. Estamos ahí grabando un vídeo. Estamos grabando ese vídeo.
 
@@ -132,11 +133,11 @@ Y yo tenía que decidir a un culpable. Pero antes... Bueno, y es como que le pre
 
 Pero antes de empezar la juicio le preguntan cómo ha... Si era la abogada de la víctima o... Y dice, no se ha perdido el... Como las pruebas del pelo que culpabilizaba al culpable. Bueno. Y ahí se convierte en un... Una casa en el puerto y tira como un barco griego azul al agua.
 
-Y luego... Luego mi madre tira un montón de libretas. Y me cabreo con ella, porque esto contamina mucho. Y... Va a recogerlo, está por ahí una ex de Ferran y más amigas.
+Y luego... Luego mi [ZA] tira un montón de libretas. Y me cabreo con ella, porque esto contamina mucho. Y... Va a recogerlo, está por ahí una ex de Ferran y más amigas.
 
 Y como que viene... Se va acercando un huracán, empieza a haber viento. Y yo voy a coger las libretas, pero voy por un sitio que... Que me caigo al agua. Estoy subiendo, está el Toyota 206 por ahí.
 
-Subo, las libretas son de grande apoyo. Ando haciendo como flotando por el agua. Mi madre me intenta ayudar para subir al muelle.
+Subo, las libretas son de grande apoyo. Ando haciendo como flotando por el agua. Mi [ZA] me intenta ayudar para subir al muelle.
 
 Subo. Y el huracán ya está... Con mucho viento y tal. Luego recogen dos libretas y la... Y la ex de Ferran y una amiga están por ahí en el agua.
 
@@ -233,9 +234,9 @@ Esto es del mismo sueño. Luego soñé, no sé si iba al plujo, pero llegaba a c
 
 ### 3
 
-Creo que dentro de la gente que disparaba esas ventosas estaba el hermano de Álvar y Álvar. O al igual, no estaban, pero como que pasaban con una furgoneta por delante. Entonces Álvar se bajaba, en plan, va, yo me quedo con esta gente que es divertida, no sé qué.
+Creo que dentro de la gente que disparaba esas ventosas estaba el hermano de [aAv] y [aAv]. O al igual, no estaban, pero como que pasaban con una furgoneta por delante. Entonces [aAv] se bajaba, en plan, va, yo me quedo con esta gente que es divertida, no sé qué.
 
-Y aparecían más colegas y en verdad la situación parecía como si tuviéramos catorce años y estuviéramos saliendo por el pueblo, pero con veintiocho, o sea, chavales de veintiocho. Y vemos cómo se va en la furgoneta, ahí va el padre y el hermano de Álvar. Y el hermano de Álvar estaba como con la puerta del copiloto abierta, pues tenía una mini pasarela y estaba él de pie.
+Y aparecían más colegas y en verdad la situación parecía como si tuviéramos catorce años y estuviéramos saliendo por el pueblo, pero con veintiocho, o sea, chavales de veintiocho. Y vemos cómo se va en la furgoneta, ahí va el padre y el hermano de [aAv]. Y el hermano de [aAv] estaba como con la puerta del copiloto abierta, pues tenía una mini pasarela y estaba él de pie.
 
 Era un poco militar la postura, pero iba vestido normal. Y nosotros en plan, va, digo, hostia, que esa persona es policía. Sí, sí, sí.
 
@@ -256,6 +257,8 @@ Era como rayo videoclip. Y en algún momento estoy con Vine y estoy como mirando
 Y pasan muchas más cosas pero no me acuerdo, tío.
 
 ## 2025-01-19 S rescatado
+
+Pues algo pasaba y estábamos como en una situación, como en una pandemia, donde todos estábamos como alerta y había ocurrido un terremoto, creo, y estábamos en Castillón y el día siguiente habíamos como quedado todos, estábamos haciendo cola en una especie de vías de metro, subterráneo, otra en subterráneo, y algunas partes estaban débiles, pasamos por el lado de una y es como que empezaba a caer unos cachos, pero estaba controlado, y yo, bueno, mejor ahora que no luego, no sé qué, cuando pase un tren, bueno, y no recuerdo con quién estaba, creo que era más tarde, no es verdad, no sé si alguien más, y es como que no sé si aceleramos esa cola, ahora creo que estaba, no, estaba mi [ZA], creo, aunque luego no estaba mi [ZA] y era nada, y fuimos a comer un bocata mientras esperábamos la cola y al auditorio de Benicarlos, y es como que salimos de la cola, adelantamos, y llegamos al auditorio y creo que ahí había más cola, y ahí ya, era tipo botellón, creo, no sé, era como de muchos bares, y veíamos dos tortillas de patata española, y dos cosas que no me acuerdo qué eran, es como una pizza cerrada, la tortilla española se le cae al camarero, al suelo, pero trae otra, también papas fritas de bolsa, y estamos como comiendo con las manos, una vez trae la comida, nos la da en platos, y lo comemos con las manos, devorando, y como ya tenemos la comida, pues volvemos, y yo estaba pensando, ostias, ¿sabremos volver al sitio donde estábamos antes? Y creo que por Instagram estaba mirando un poco para ver, pero bueno, aunque yo ya en ese momento tampoco me apetecía volver mucho, y también estaban David, Maed, y [hA] y [aAAg] y yo, y yo empiezo a hablar con [aAAg], a ver, era divertido, y ella se queda sentada en un sitio, contándome algo, mientras estos van a hacer la cola, yo estoy, me quedo hablando con ella, mientras veo cómo se van, quiero ir detrás, pero también me quiero quedar con ella, obviamente me quedo con ella, y bueno, vamos con la conversación, creo que yo le había dicho que me había acostado con una chica virgen, y ella como se me acercó, dijo algo, y yo le mordí el labio, y me dijo, vamos a correr la sangre de tu habitación, como en plan, si te has acostado con una virgen y se le ha roto el imén, pues quita ya sangre, no sé, y ahí se acabó, pero estaba guapo, soy yo. En el metro, en el suelo, es como que estaba todo el pueblo ahí, en la cola, y era una mezcla de Castillo y Nivel Carlos, no sé, a veces, no sabía dónde estaba.
 
 ## 2025/01/23 Sueño ukraina
 
@@ -297,19 +300,19 @@ Y me abrazó en plan... Jo, yo también. A mí también me da pena. No sé qué.
 
 ## 2025-02-01 S rescatado
 
-Pues estaba como en el tren, en la estación, o en las vías, no me acuerdo. Había mucha gente y también estaba Bernie por allí. Y dijo algo como... No, espera, era una red social... Buah, era una red social. 
+Pues estaba como en el tren, en la estación, o en las vías, no me acuerdo. Había mucha gente y también estaba [eB] por allí. Y dijo algo como... No, espera, era una red social... Buah, era una red social. 
 
-A ver, el sueño. Red social, Bernie, estación de tren, cada uno por su lado. Pero yo me quedo en las vías.
+A ver, el sueño. Red social, [eB], estación de tren, cada uno por su lado. Pero yo me quedo en las vías.
 
 Nos disparan. Huyo. Y... A través de sus sótanos, como que voy a otras... A otros lugares del planeta.
 
 Eh... No sé, estaba viendo desde el móvil una red social. Estaba viendo la pantalla y justo en ese momento salía una chica. Y en la imagen se veían las tetas.
 
-Y justo en ese momento aparece como mi madre por al lado. Como en plan... Hijo, esto qué... Ayúdame a hacer esto, no sé qué tal. Y yo... Bueno, y quito el app.
+Y justo en ese momento aparece como mi [ZA] por al lado. Como en plan... Hijo, esto qué... Ayúdame a hacer esto, no sé qué tal. Y yo... Bueno, y quito el app.
 
 Entonces ella no lo ve y se va. Ahora me meto completamente dentro del app. Y es como... No sé.
 
-Lo mismo. Eh... Y estoy con Bernie. Y... Chateando.
+Lo mismo. Eh... Y estoy con [eB]. Y... Chateando.
 
 Y ella me dice algo, tipo... Yo creo que le envié mensaje y al final puso algo así, rollo guapa. Y me dijo si está... Tranquilo, porque el pasado está atrás. Y... Y ya está, es lo que dijo eso.
 
@@ -448,7 +451,7 @@ Y así, poco a poco... Iban viniendo todos... Los zombis. Y al final recuerdo, c
 
 ### 3?
 
-Creo que fue antes de ese sueño. Estaba soñando que estaba con Adri en mi habitación, jugando a algo. Como en una silla, jugando a un videojuego.
+Creo que fue antes de ese sueño. Estaba soñando que estaba con [hA] en mi habitación, jugando a algo. Como en una silla, jugando a un videojuego.
 
 Y escuchamos como que va a subir el abuelo. Y el abuelo sube. Entonces tiramos las sillas por el aire.
 
@@ -515,7 +518,7 @@ Pues, estaba en tu casa ([ptto]), pero tenía la forma de mi casa y, pero era tu
 
 Y estás como en plan, tío, ahora te colocaste en todo, joder, o sea que, pero no lo dijiste, sé lo que es esto. Y yo, uff, es que estoy, no sé por qué me he colocado tanto. Me voy, me voy y vuelvo, pero casi me caigo, tengo que sentarme, pero me voy, vuelvo y yo ya, ya está, ya estoy mejor.
 
-Y pasaron cosas que no recuerdo, pero estábamos recogiendo las colillas de los ciniceros, entonces estábamos yendo por ahí a recoger y estaba todo cada vez más desordenado en la habitación. Entonces, claro, nos pasamos varias veces por la casa. Te dijiste algo tipo que tu madre, que estaba en la casa en otro sitio, nos había pillado fumando hierba por mi culpa.
+Y pasaron cosas que no recuerdo, pero estábamos recogiendo las colillas de los ciniceros, entonces estábamos yendo por ahí a recoger y estaba todo cada vez más desordenado en la habitación. Entonces, claro, nos pasamos varias veces por la casa. Te dijiste algo tipo que tu [ZA], que estaba en la casa en otro sitio, nos había pillado fumando hierba por mi culpa.
 
 Estaba lloviendo fuera y estaba recogiendo un cenicero. Buena nota, en otra parte del sueño estaba en la biblioteca y la biblioteca estaba en un mirador llegando a Andorra y era una pasada. Y ahí está la biblioteca y se accedía con bus.
 
@@ -535,11 +538,11 @@ Estaba por Telepi y estaban todas las fuentes de agua públicas enchufadas y hab
 
 ### 2
 
-Y antes de todo eso, yo vivía en una casa, y no sé por qué estaba hablando con algunos latinos, una familia latina. Mis padres no estaban, y yo fui con ellos a hacer algo, y cogieron nuestro coche. Y yo, oye, pero este fin de año están mis padres, pero el coche me lo quedo yo.
+Y antes de todo eso, yo vivía en una casa, y no sé por qué estaba hablando con algunos latinos, una familia latina. Mis [ZAZZ] no estaban, y yo fui con ellos a hacer algo, y cogieron nuestro coche. Y yo, oye, pero este fin de año están mis [ZAZZ], pero el coche me lo quedo yo.
 
 Me dicen, ay, ¿cómo llevaremos a mi abuela el coche? Y yo pensando, pues tío, no sé, no es mi problema. Y al llegar a casa, me di cuenta de que se habían llevado las llaves del coche, y yo intentando enviarles un whatsapp, pero la última actualización del teclado de whatsapp era una mierda. Bueno, al final les conseguí un mensaje en plan, esto que habéis hecho me ha cabreado, no sé qué, pero el coche no me lo devolveré.
 
-Y estando yo en casa, me quitaba pelos de la espalda, pero era como estiraba, y era un fideo súper largo. Y lo hice varias veces, y cuando llegaron mis padres le eché la bronca, porque me quité uno tan largo, los iba dejando encima de una cama, como en plan, no sé, para que vean que no era mentira. Había uno tan largo que al final habían como restos de pescado, y yo en plan, padre, tío, yo creo que el pescado que comemos tiene anisakis y gusanos, y mira, tío, bueno, eso.
+Y estando yo en casa, me quitaba pelos de la espalda, pero era como estiraba, y era un fideo súper largo. Y lo hice varias veces, y cuando llegaron mis [ZAZZ] le eché la bronca, porque me quité uno tan largo, los iba dejando encima de una cama, como en plan, no sé, para que vean que no era mentira. Había uno tan largo que al final habían como restos de pescado, y yo en plan, padre, tío, yo creo que el pescado que comemos tiene anisakis y gusanos, y mira, tío, bueno, eso.
 
 
 
@@ -597,7 +600,7 @@ Venecia, examen de las Opus, Willy borracho, casa, Sevilla, ¿no? Luego estaba d
 
 ### 
 
-Pues estaba en Venecia, creo, acaba justo de llegar, creo que estaba con Adri, y estamos en una plaza mirando. En el suelo había agua y, bueno, se veía muy bonito. Y vemos dos pisos por dentro, tres, y yo sabía que había hecho un examen ahí antes, de las sopos, alguna vez, y ese día iba a ser el último.
+Pues estaba en Venecia, creo, acaba justo de llegar, creo que estaba con [hA], y estamos en una plaza mirando. En el suelo había agua y, bueno, se veía muy bonito. Y vemos dos pisos por dentro, tres, y yo sabía que había hecho un examen ahí antes, de las sopos, alguna vez, y ese día iba a ser el último.
 
 Yo lo sentía como, este es el último. Y teníamos justo la habitación en cristal con cristal, con toda esa sala, pero luego eso no va más en el sueño, que enseguida me olvido. Y empieza el examen, bueno, directamente lo hago, y la sensación está final de, bueno, he acabado, ya está, no se va a repetir, este es el último examen.
 
@@ -676,3 +679,5 @@ creo que no fué Rocío sino ([ptto]) con quién discutí
 
 
 ## 202x sueño mal  no se  fecha
+
+Eh, creo que he soñado que... Eh, bueno, estaba pensando en Fernanda Alonso. Y...

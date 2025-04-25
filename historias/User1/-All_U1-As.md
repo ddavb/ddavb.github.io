@@ -1,5 +1,7 @@
 # SUEÑOS por editar
 
+   - [2025/04 Ultima compra](./U1-archivo-sueños/2025-04-25_Última_compra.md)
+
    - [to-do]
 
    - [2025/03 Ultrasueño](./U1-archivo-sueños/2025-03-30-Ultrasueño.md)
