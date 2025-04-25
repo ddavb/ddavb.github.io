@@ -19,10 +19,3 @@ Lo expreso a través de poca coherencia textual y faltas de ortografía.
 [Ilustraciones - photo edit](/ilustraciones.md)
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/7AA.png)
-
-
-
-[to do U1-As](/historias/User1/-to-edit_U1-As.md)
-
-
-![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/IMG_3683_edit.png)

@@ -1,6 +1,9 @@
 # SUEÑOS por editar
 
-   - [2025/04 Ultima compra](./U1-archivo-sueños/2025-04-25_Última_compra.md)
+   - [to do U1-As](./U1-archivo-sueños/-to-edit_U1-As.md)
+   
+
+   - [2025/04 Pizza a la barbacoa en tabla de ping pong](./U1-archivo-sueños/2025-04-25_Pizza_pinpong_add.md)
 
    - [to-do]
 
@@ -27,6 +30,8 @@
 
    - [2024/09 fragmento China](./U1-archivo-sueños/2024-09-23_fragmento_china.md)
 
+   - [2024/09-todo]
+
    - [2024/09 Karma](./U1-archivo-sueños/2024-09-20_Karma.md)
 
    - [2024/09 Recordar](./U1-archivo-sueños/2024-09-18_recordar.md)
@@ -47,6 +52,6 @@
 
    - [2021/03 Boxeo, sexo y un loop](./U1-archivo-sueños/2021-03-28_Boxeo_sexo_loop.md)
 
-   - [(x) Una partida confusa](./U1-archivo-sueños/_Una_partida_confusa.md)
+   - [202x - Una partida confusa](./U1-archivo-sueños/202x_Una_partida_confusa.md)
 
 
