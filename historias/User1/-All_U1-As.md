@@ -3,14 +3,13 @@
    - [to do U1-As](./U1-archivo-sueños/-to-edit_U1-As.md)
    
 
-   - [2025/04 Pizza a la barbacoa en tabla de ping pong](./U1-archivo-sueños/2025-04-25_Pizza_pinpong_add.md)
+   - [2025/04 Pizza a la barbacoa en tabla de ping pong (no pic)](./U1-archivo-sueños/2025-04-25_Pizza_pinpong_add.md)
 
    - [to-do]
 
    - [2025/03 Ultrasueño](./U1-archivo-sueños/2025-03-30-Ultrasueño.md)
 
    - [to-do]
-
 
    - [2024/12 Huída](./U1-archivo-sueños/2024-12-09_Huída.md)
 
@@ -26,11 +25,12 @@
 
    - [2024/10 fragmento iaio](./U1-archivo-sueños/2024-10-10_fragmento-iaio.md)
 
-
-
    - [2024/09 fragmento China](./U1-archivo-sueños/2024-09-23_fragmento_china.md)
 
-   - [2024/09-todo]
+   - [2024/09 terror asesino (no pic)](./U1-archivo-sueños/2024-09-23_terror_asesino.md)
+
+
+   - [2024/09 nosense + pitillos (to edit - no pic)](./U1-archivo-sueños/-2024-09-21_nosense+pitillos.md)
 
    - [2024/09 Karma](./U1-archivo-sueños/2024-09-20_Karma.md)
 
@@ -41,8 +41,6 @@
    - [2024/09 Parte policial](./U1-archivo-sueños/2024-09-11_parte_policial.md)
    
    - [2024/09 Molestias](./U1-archivo-sueños/2024-09-07_molestias.md)
-
-
 
    - [2024/08 Las rotondas son el mal](./U1-archivo-sueños/2024-08-29_Las_rotondas_add.md)
 

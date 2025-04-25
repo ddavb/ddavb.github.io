@@ -1,4 +1,4 @@
-## 2025/04/25 - Pizza a la barbacoa en tabla de ping pong
+## 2025/04/25 - Pizza a la barbacoa en tabla de ping pong (no pic)
 
 Estás en el parking del mercadona, el que está cerca de tu casa.
 Estás con [hA] y [ZZ], y por una reciente situación apocaliptica tenéis q quedaros a cenar ahí, con toda la gente presente.
@@ -9,13 +9,13 @@ Tú con todo el caos, intentas robar chuches (hay prisa y neeviosismo).
 Le das un mordisco a una chuche mientras comprandos, así si te pillan dices que la ibas a pagar igual.
 Si no te pillan no habrán pruebas.
 
-Pero el segurata te “pilla” y tienes una charla con el.
+Pero el segurata te `pilla´ y tienes una charla con él.
 Genera un tíquet que guarda la cajera para que cuando acabes de comprar te cobren también las chuches.
 Piensas que es lo justo ni siquiera muestras disguto.
 
 Te paseas por el super y compras pizza, cocacola.
 Quieres comprar un postre bueno, pero nada te convence.
-Una cuajada especial cuesta 7 euros … piensas en comprar uno con flora intestinal ... mmm aunque están buenos no es lo que buscas … no sabes si compras finalmente postre
+Una cuajada especial cuesta 7 euros ... piensas en comprar uno con flora intestinal ... mmm aunque están buenos no es lo que buscas ... no sabes si compras finalmente postre
 
 Hay feeling con la cajera.
 Al salir por la puerta escuchas como alguién le pregunta en voz alta a la cajera si quiere sexo esa noche
