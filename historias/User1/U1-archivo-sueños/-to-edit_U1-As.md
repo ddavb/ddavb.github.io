@@ -153,19 +153,7 @@ Era un poco militar la postura, pero iba vestido normal. Y nosotros en plan, va,
 
 Espepéntico.
 
-## 2025/01/14 Sueño lud
 
-Recuerdo que estaba en un concierto de la Luz Big Band en una nave industrial y estaba en el escenario y yo me estaba preparando como para tocar como si fuera la orquesta y me están explicando cosas y de repente viene [aP] y me dice ¿Ya a tocar? Y yo, ¿Ya? Y me dice, sí, hombre. Pero como con la mirada noto que no voy a tocar, ¿sabes? Que van a tocar ellos. Y es como que al principio estaba la posibilidad de que yo tocara alguna canción y tal pero en ese momento fue en plan, no, no.
-
-Y yo, uff, menos mal porque no estoy preparado. Empiezan a tocar, está guapo. Yo voy por un lado del escenario.
-
-Hacen cosas, un montón de público. No recuerdo si me junté con alguien por ahí. Se transformó el sitio en un chalet súper grande de madera, de lujo, con piscina.
-
-Y yo estaba como yendo hacia afuera desde el chalet que era muy grande, muchas salas, atravesando salas, y me iba encontrando gente. Estaba [aZ], gente del plug, [aCc]. Y yo estaba como grabando con el móvil y estaba saliendo cosas súper guapas y en cámara lenta y, no sé, estaba muy guapo.
-
-Era como rayo videoclip. Y en algún momento estoy con Vine y estoy como mirando el móvil, creo, para enseñarle el vídeo que he grabado pero no lo encuentro. Y como que voy recreando otras escenas de fiesta pero que no es ese vídeo que hice.
-
-Y pasan muchas más cosas pero no me acuerdo, tío.
 
 ## 2025-01-19 S rescatado
 
