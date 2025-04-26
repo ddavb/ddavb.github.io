@@ -13,9 +13,6 @@ Lo expreso a través de poca coherencia textual y faltas de ortografía.
 
 [User2](/historias/User2/-All_U2-As.md)
 
-- to do: the best
-
-
 [Ilustraciones - photo edit](/ilustraciones.md)
 
 ![melt my brain](https://raw.githubusercontent.com/ddavb/ddavb.github.io/master/_images/7AA.png)
