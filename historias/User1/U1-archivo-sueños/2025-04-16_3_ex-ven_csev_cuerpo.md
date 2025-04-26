@@ -1,4 +1,4 @@
-## 2025/04/16 examen venecia - explorar - cuerpos (falta revisar audio)
+## 2025/04/16 examen venecia - explorar - cuerpo prestado (falta revisar audio)
 
 > Venecia y examen de las opos, Willy borracho. Casa sevillana y sus posibles salidas.
 Discutir con ([ptto]) por tomar prestado el cuerpo de [aRh].
