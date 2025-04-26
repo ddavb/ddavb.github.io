@@ -2,7 +2,7 @@
 
 [[ÍNDICE]](#sueños-por-editar)
 
-Una noche pescando con < aJ >, le insistes en que tiene que regular la presión de las ruedas del coche.
+Una noche pescando con [aJ], le insistes en que tiene que regular la presión de las ruedas del coche.
 A pesar de argumentartee que estás equivocado, lo hace y se da cuenta de que ahora es más feliz.
 
 
@@ -11,7 +11,7 @@ Edificios señoriales y las calles sucias y aún por peatonalizar.
 Ves gente pasar con tabaco y te apetece uno. Aguantas o te olvidas, no sabes.
 
 
-Estas ahora en el centro comercial de Benicarló (pero diferente) con < eMG >
+Estas ahora en el centro comercial de Benicarló (pero diferente) con [eMG]
 Vais a una tienda y ahí esta el ex como segurata.
 Ella va a hablar con él y luego vuelven los dos.
 Hablas con él de guay, siendo una situación incómoda.

@@ -1,8 +1,8 @@
 # SUEÑOS por corregir
  
-   - [2025/04 Pizza a la barbacoa en tabla de ping pong (no pic)](./U1-archivo-sueños/2025-04-25_Pizza_pinpong_add.md)
+   - [**2025/04 Pizza a la barbacoa en tabla de ping pong (no pic)**](./U1-archivo-sueños/2025-04-25_Pizza_pinpong_add.md)
 
-   - [2025-04 Exámen en venecia - salir de la casa - cuerpo prestado (nopic-checkaudio)](./U1-archivo-sueños/2025-04-16_3_ex-ven_csev_cuerpo.md)
+   - [**2025-04 Exámen en venecia - salir de la casa - cuerpo prestado (nopic-checkaudio)**](./U1-archivo-sueños/2025-04-16_3_ex-ven_csev_cuerpo.md)
 
    - [2025-04 (nopic-checkaudio)](./U1-archivo-sueños/2025-04-15_(nopic-checkaudio).md)
 
@@ -10,17 +10,17 @@
 
    - [2025-04 anisakis (nopic-checkaudio)](./U1-archivo-sueños/2025-04-01_anisakis.md)
 
-   - [*2025/03 *Ultrasueño*](./U1-archivo-sueños/2025-03-30-Ultrasueño.md)
+   - [**2025/03 Ultrasueño**](./U1-archivo-sueños/2025-03-30-Ultrasueño.md)
 
    - [2025-01 Ludwig Band (no pic)](./U1-archivo-sueños/2025-01-14_Ludwig_Band.md)
 
    - [2024/12 Huída](./U1-archivo-sueños/2024-12-09_Huída.md)
 
-   - [2024/12 Laberinto](./U1-archivo-sueños/2024-12-02_Laberinto.md)
+   - [**2024/12 Laberinto**](./U1-archivo-sueños/2024-12-02_Laberinto.md)
 
    - [2024/11 Faena](./U1-archivo-sueños/2024-11-10_Faena.md)
 
-   - [2024/11 Reflejo](./U1-archivo-sueños/2024-11-07_Reflejo.md)
+   - [**2024/11 Reflejo**](./U1-archivo-sueños/2024-11-07_Reflejo.md)
 
    - [2024/11 Asq](./U1-archivo-sueños/2024-11-05_asq.md)
 
@@ -28,15 +28,15 @@
 
    - [2024/10 fragmento iaio](./U1-archivo-sueños/2024-10-10_fragmento-iaio.md)
 
-   - [2024/09 fragmento China](./U1-archivo-sueños/2024-09-23_fragmento_china.md)
+   - [**2024/09 fragmento China**](./U1-archivo-sueños/2024-09-23_fragmento_china.md)
 
-   - [2024-09 terror asesino (no pic)](./U1-archivo-sueños/2024-09-23_terror_asesino.md)
+   - [**2024-09 terror asesino (no pic)**](./U1-archivo-sueños/2024-09-23_terror_asesino.md)
 
    - [2024-09 nosense + pitillos (no pic)](./U1-archivo-sueños/2024-09-21_nosense+pitillos.md)
 
    - [2024/09 Karma](./U1-archivo-sueños/2024-09-20_Karma.md)
 
-   - [2024/09 Recordar](./U1-archivo-sueños/2024-09-18_recordar.md)
+   - [**2024/09 Recordar**](./U1-archivo-sueños/2024-09-18_recordar.md)
 
    - [2024/09 fragmento UMA](./U1-archivo-sueños/2024-09-17_fragmento_UMA.md)
 
