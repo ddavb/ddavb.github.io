@@ -2,7 +2,7 @@
  
    - [2025/04 Pizza a la barbacoa en tabla de ping pong (no pic)](./U1-archivo-sueños/2025-04-25_Pizza_pinpong_add.md)
 
-   - [2025-04 Exámen en venecia - salir de la casa - cuerpo  (revisar audio - no pic)](./U1-archivo-sueños/2025-04-16_3_ex-ven_csev_cuerpo.md)
+   - [2025-04 Exámen en venecia - salir de la casa - cuerpo prestado (revisar audio - no pic)](./U1-archivo-sueños/2025-04-16_3_ex-ven_csev_cuerpo.md)
 
    - [2025/03 Ultrasueño](./U1-archivo-sueños/2025-03-30-Ultrasueño.md)
 
