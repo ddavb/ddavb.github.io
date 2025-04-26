@@ -6,7 +6,7 @@
 
    - [2025-04 (nopic-checkaudio)](./U1-archivo-sueños/2025-04-15_(nopic-checkaudio).md)
 
-   - [2025-04 [ptto] (nopic-checkaudio)](./U1-archivo-sueños/2025-04-07_(nopic-checkaudio).md)
+   - [2025-04 [ptto] (nopic-checkaudio)](./U1-archivo-sueños/2025-04-07_[ptto].md)
 
    - [2025-04 anisakis (nopic-checkaudio)](./U1-archivo-sueños/2025-04-01_anisakis.md)
 
