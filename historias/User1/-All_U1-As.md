@@ -10,9 +10,9 @@
 
    - [2025-04 anisakis (nopic-checkaudio)](./U1-archivo-sueños/2025-04-01_anisakis.md)
 
-   - [2025/03 Ultrasueño](./U1-archivo-sueños/2025-03-30-Ultrasueño.md)
+   - [*2025/03 *Ultrasueño*](./U1-archivo-sueños/2025-03-30-Ultrasueño.md)
 
-   - [2025-01 Ludwig Band](./U1-archivo-sueños/2025-01-14_Ludwig_Band.md)
+   - [2025-01 Ludwig Band (no pic)](./U1-archivo-sueños/2025-01-14_Ludwig_Band.md)
 
    - [2024/12 Huída](./U1-archivo-sueños/2024-12-09_Huída.md)
 
