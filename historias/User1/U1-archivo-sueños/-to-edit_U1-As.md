@@ -36,6 +36,10 @@ Viene la policía, se lleva al Segurata. Pero antes de llevarse al Segurata, vin
 Y al Segurata se lo lleva a la policía. Y a la chica. A la chica le dice fue.
 
 
+## 2024-10-03 sueño mal  no se  fecha
+
+Eh, creo que he soñado que... Eh, bueno, estaba pensando en Fernanda Alonso. Y...
+
 ## 2024-10-09 S rescatado
 
 Pues estaba en una especie de puerto, o casa. Era un juicio. Y... Oh, vale, era un juicio.
@@ -429,69 +433,3 @@ Y se había taponado esa salida de agua y se había acumulado tanta agua que est
 
 
 
-## 2025-04-01 sueño rescatado
-
-### 1
-
-Estaba por Telepi y estaban todas las fuentes de agua públicas enchufadas y había una persona que estaba rellenando sus botellas y iba al coche a por más y iba cerrando los grifos y le echaba la bronca y al principio lo entendía pero cada vez que hacía algo él se enfadaba y acabamos discutiendo. Menudo estúpido en crídito, hijo de puta. Y bueno, no sé, chungasca.
-
-### 2
-
-Y antes de todo eso, yo vivía en una casa, y no sé por qué estaba hablando con algunos latinos, una familia latina. Mis [ZAZZ] no estaban, y yo fui con ellos a hacer algo, y cogieron nuestro coche. Y yo, oye, pero este fin de año están mis [ZAZZ], pero el coche me lo quedo yo.
-
-Me dicen, ay, ¿cómo llevaremos a mi abuela el coche? Y yo pensando, pues tío, no sé, no es mi problema. Y al llegar a casa, me di cuenta de que se habían llevado las llaves del coche, y yo intentando enviarles un whatsapp, pero la última actualización del teclado de whatsapp era una mierda. Bueno, al final les conseguí un mensaje en plan, esto que habéis hecho me ha cabreado, no sé qué, pero el coche no me lo devolveré.
-
-Y estando yo en casa, me quitaba pelos de la espalda, pero era como estiraba, y era un fideo súper largo. Y lo hice varias veces, y cuando llegaron mis [ZAZZ] le eché la bronca, porque me quité uno tan largo, los iba dejando encima de una cama, como en plan, no sé, para que vean que no era mentira. Había uno tan largo que al final habían como restos de pescado, y yo en plan, padre, tío, yo creo que el pescado que comemos tiene anisakis y gusanos, y mira, tío, bueno, eso.
-
-
-
-## 2025/04/07 Sueño
-
-### 1 ([ptto])
-
-Pues he soñado que estaba una iglesia con una lina y bajábamos las escaleras centrales. Creo que estaban en misa. Las escaleras pertenecían a la capilla y a los laterales había sitio para sentarse.
-
-Estaba Marta, que he visto por ahí. Y delante había sitio. Digo, ni tengo que estar, Elena, para sentarnos por la derecha.
-
-Y ya se sentó por la izquierda. No, no me ha pasado nada. Acabo un rato y ya estaba a la derecha.
-
-Estaba atrás a la izquierda. Estaba atrás a la izquierda. Y escucho como pedo.
-
-Pedo muy largo. Y alguien que gime o se escucha como estaba conteniéndose un gemido por no cagarse encima. Y me gire y veo a una persona retorcida de dolor.
-
-Menos válida. Encima de como un carro. Para menos válidos.
-
-Y cuando se le va el dolor, se gira para atrás como quien ha sido. Porque todos estaban mirando, todos habían girado. Y en un momento dado, coge y se va al baño.
-
-Todo esto mientras todos un poco miraban. Nadie se rió, pero fue con el pan. Sorpresa.
-
-Después, soñé algo con Elena. Ese menos válido y otro fueron al baño. Y fueron por el ascensor.
-
-Y cantaron una melodía. Y yo estaba discutiendo con Elena cuál era la mejor forma de representar música con colores. Estaba la escala de... En la escala de su... Digamos, la escala de... La mayor.
-
-Y yo quería... No sé. Magenta y azul y verde. O azul y verde.
-
-Y ella cogió otros colores. Bueno, los menos válidos ahora son espías y quieren escapar. Y... Consiguieron entrar en el ascensor.
-
-Y los gatos que tenía el gobierno están corriendo por las escaleras para identificar en qué piso ha bajado.
-
-### 2 ([ptto])
-
-Buah, íbamos a Camilos a por pizzas y como no dijimos nada hicieron las pizzas y no nos avisaron, estuvimos esperando fuera y al preguntar Elena fue como la otra vez y al preguntar por las pizzas dijeron vale las recalentamos y os las lleváis y ya está pero no sé por qué si pasaba más de media hora desde que la hacían pues que la tiraban, la estiraron una y tiene que volverla a dijeron que ya estaba, fui a pagar pensando si de normal cuesta 40 pavos tendré que pagar el doble o quizá menos y pensando a ver cuánto cuesta y sale una chica y me da un papel y me dice mira esto es lo que te va a costar y ponía 770 euros y me puso hecho una furia con ella en plan de que vais, que esto es aceptable que no voy a pagar eso, que me cabré con ello, pero nos habían servido las pizzas y no sabíamos, yo les decía yo no voy a pagar así que si queréis llamar a la policía a llamar y se metieron dentro y salió otro dueño a decirme cosas y se volvió a entrar y bueno, fuimos a la terraza de caminos que no existe, pero en mis sueños si, a comer las pizzas y aparece Tomas Elvi que conoció a Elena y dice alguna referencia de Smotty Python, entonces Elena y Selvi cada una haciendo una referencia a Smotty Python diferente y luego aparece otra vez algún dueño o un cocinero y me dice déjame que les retire las guindillas picantes de su plato y yo pensé quizá lo han hecho como me han puesto algo malo en el plato y ahora quieren compensarlo, o sea no quieren que sufra y el chino, como que para quitar esas guindillas manoseaba mi comida y yo me cabreaba, le decía que no hiciera eso pero él no paraba y intentando que no lo hiciera, pero él seguía y yo me reía un poco, risa incómoda, como tío que mierda que está haciendo con mi comida
-
-
-## 2025/04/15 Sueño
-
-Soñé que estaba en un sitio chill-out, bar, de estilo playero, con mucha vegetación y no sé si el bar donde servían las cosas era... como una... una caravana antigua que le faltaba un lado, o como que habían adecuado para hacer un bar, o algo así. Y estaba con... un chaval, que no me acuerdo cómo se llama ahora, y se toma un café, y en el momento de pedirlo pasan cosas, hace cosas, y él está hablando con la camarera y le coge unas siete galletas que son redonditas tipo donut, y las iba poniendo dentro del café, y puso unas siete, y luego se puso un poco más de café para que desbordara y el vaso se llenara un poquito más de café, y volvió a poner otra galleta dentro de la taza de café, y era extraño, me hubiera gustado saber la razón. Estaba preguntando cuánto tiempo lleva haciendo esto, y nos vamos de ese bar, y él se queda en una mesa sentado con una persona que... yo no quería estar en esa conversación, entonces les dije, bueno, nada, un placer que me piro, y me fui.
-
-Y él, vale, vale, me pide un café con él, y cada uno se fue por un lado a tomarlo. Y yo iba con la taza de café por unas calles que había mucha vegetación, el suelo está asfaltado, pero por los lados está lleno de vegetación, y hay una... voy caminando por esa calle, era un poco curva, y hay otro bar, y decido entrar. Mi idea era guardarme la taza en la mochila o en algún sitio, y hacer algo, o dormir, o acuerdo.
-
-Y al entrar, estaba Javier Milei, era el dueño, y me está diciendo de tocar, y yo tenía un réper para tocar, y había una chica, me decía, y no te pones nervioso antes de tocar, y yo, bueno, hoy sí, porque voy a tocar yo solo, voy a tocar yo solo el bajo con pistas de fondo. Y me puse como a montar, y me empezaron a preguntar qué réper no tenía, y no sé qué, y yo veía que tenía que montar muchas cosas, y me estaban distrayendo. Y me estaban empezando a agobiar ellos, el dueño, y me preguntaba, y yo decía, mira, sí, que de Overleaf me descargo el PDF de réper, y una chica por ahí, uh, réper, qué carga.
-
-Y yo, bueno, pues es que se llama así, y yo estaba montando, y aparece [aP], y es como que me ayuda a desmontar, o bueno, no me ayuda, pero me está hablando, como si esa situación lo hubiera pasado ya con el padre de [aR], y se acabó.
-
-
-
-## 202x sueño mal  no se  fecha
-
-Eh, creo que he soñado que... Eh, bueno, estaba pensando en Fernanda Alonso. Y...
