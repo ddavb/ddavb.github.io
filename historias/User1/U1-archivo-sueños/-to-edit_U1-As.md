@@ -476,6 +476,8 @@ en un momento que llegamos a un sitio turístico, y hay muchas tiendas, y bares,
 
 y ahí en el sueño entré en bucle, porque quise salir de ese círculo, pero no conseguí salir del bar, y yo intentaba salir, pero me equivocaba, iba hacia atrás, y me echaban la bronca y me decían que no, que no podía, y yo no estaba intentando, yo obviamente quería hacer las cosas rápido, pero si no podía hacerlas rápido quería hacerlas bien, y no lo estaba haciendo de ninguna forma,
 
+(no sabia donde iba quería salir)
+
 hablo con un segurata, me deja las cosas claras, y yo, vale, salgo fuera creo, hago el circuito, acabo dentro del bar, no sé si me pedía algo, y al salir el segurata de antes, que había sido un poco hostil, ahora era dócil, me dice, tú sabes que cuando vienes aquí, en un sitio turístico, nos graban a todos, y no se nos ve como personas, sino como, le dije yo, datos, y me dice, sí, es como, y bueno, me dice, tu brazo tiene una probabilidad de no sé qué, y si en tal día, y en ese momento se va transformando como un chica, el segurata, y la probabilidad de que hayas venido con tu pareja, y que quedéis en tal hora, en tal día, es como, va a hacer que folle, me suelta algo así,
 
 yo sí, yo lo sé, pero bueno, tal,
