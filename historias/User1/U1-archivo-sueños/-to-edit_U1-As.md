@@ -487,3 +487,61 @@ y claro, al salir del bar, habíamos vuelto como al principio de ese círculo de
 le he dado una pregunta así, y yo, no sé, lo único que dije fue, tan, a ver que responda Adri, que tengo curiosidad, no sé, que Adri, no sé, explicó algo, que para mí fue, no, no entendí nada, es como, no sé, lo que dijo debería haber tenido sentido, y fue gracioso, comprensible, y correcto, pero es como que, no le puse palabras a lo que dijo, no sé que dijo, solo sé que dijo algo así, o sea, dijo algo como, con sentido, pero no le puse, es como, imaginé que dijo algo, pero yo, mi mente está como, no le puse significado a las palabras que dijo, las interpreté, o sea, no sé, eso, creo que se acabó ahí el sueño.
 
 
+## 2025-05-08 Intruso
+
+Sueño... Vale, lo intentaré en tercera persona. Estás con Marcos, profe música, hablando de Poteito, y es como... Y te dice... Bueno... Estoy yendo a un edificio y él te dice, no te preocupes que... que a partir de ahora volveremos a preocuparnos por ella, o a ocuparnos en plan de cuidarla. Oye, suena muy parentesco, no lo entendí.
+
+Y nos dirigíamos hacia un edificio, entramos en el portal, o llamamos al timbre del portal, y damos una vuelta, como volvemos otra vez al principio, porque me coge del hombro y me... Tercera persona, perdón. Porque te coge del hombro y te dice... Este es un lugar... Este es un lugar en el que no puedes entrar fácilmente, tienen que... pensar que vas puesto igual que ellos. Te lo dice como advertencia.
+
+Y volvéis a entrar. Y tú, pues, como, no sé, piensas... Tengo cara cansada de estudiar, con los ojos un poco cansados, no tienes los ojos rojos, bueno, da igual. Te miras, las pupilas de repente crecen.
+
+Piensas, bueno, pude colar. Y dentro del edificio, cerca de las escaleras y el ascensor, baja en ese momento un gente, tres chicas, y van como con pijama y tal, y se llevan con un perrito, y están por ahí, se nos cruzan, el perro se para, juego un poco con él, y yo... Es como si... te estuvieras... aguantando... Es como si hubieras bebido un par de cervezas y no quisieras que se note. Eso es lo que estaba actuando yo.
+
+Un par de cervezas o tal. Y... Y claro, esa gente conoce a Marcos, pero no te conoce a ti. Y te empiezan a hacer preguntas que tú intentas responder, y el cabrón de Marcos te sugestiona a veces y te conduce la conversación o te induce las respuestas.
+
+Incluso en algún momento aparece también Ana Vilma y también contesta una pregunta. Luego en todo el sueño no aparece, pero... Y te van preguntando cómo te llamas. Y alguien dice Adriana, y yo Adri.
+
+Es como, uy, mierda, la lío. Y dice, a ver, entonces, ¿cómo te llamas? Adriana o Adri. Y yo, bueno, si no me cambia el nombre, Adri.
+
+Luego también me pregunto ¿dónde vives yo? Y el cabrón de Marcos dice, sí, pero... antes vivía en Minaroz. Entonces tengo que inventarme una historia sobre... Sí, bueno, antes vivía en Minaroz con mis tíos. ¿Cómo que con tus tíos? Y yo, pues sí, por parte de padre y de madre.
+
+A medida que avanzaba el interrogatorio va habiendo mas y mas audiencia.
+Hay más de cien personas, quizás doscientas personas como escuchando y valorando las palabras que dices. Que es toda la gente de ese mundillo.
+
+> Antes vivía en Minaroz y volvimos aquí buscando algo mejor. Es como, no sé, estoy haciendo cosas, pero... - vas mintiendo, pero... como que lo cuelas ahí, sabes que en algún momento... Sabes que en algún momento... la podéis liar y que... vas a tener que estar preocupado por las mentiras. Y parece que va todo bien, y eso.
+
+Y como avanzamos. Y entramos. Y entrar.
+
+Fue entrar en una plaza enorme, como si fuera un patio interior de... un patio de edificios, pero enorme. Muy grande, muy grande. Y plano.
+
+Un poco desgrabado. Íbamos directos hacia un edificio. Y así, con Marcos, se convirtió en Joel.
+
+Creo. Y me dio unas palmadas así, bien, no sé qué. Y entramos en un edificio.
+
+Y entramos dentro de la puerta y en el primer piso, al subir las escaleras, sale Chema, sin camiseta, en plan, me acabo de despertar. Qué era y no sé qué. Y nosotros, vamos a ver a George, y dice... Dice como cosas sin sentido.
+
+Estaba juguetón, un poco violento también, pero... no sé, es muy cookie. Bueno, cookie no es la palabra. Íbamos subiendo pisos, Chema sube también.
+
+Íbamos subiendo pisos. Y George está al cuarto. Y de George, lo que creemos es una... que habla de comida, creo.
+
+Y se pone Chema como a cocinar, emulando lo que iba a cocinar George. Pero yo veo que lo que hace no tiene sentido. Está haciendo una tortilla, pero le mete un montón de agua, lo remueve, y yo, pero tío, ¿qué haces metiendo agua? Dice, sí, es para que absorba.
+
+Y yo, pero, que no, tío, que eso está mal. Y sale George y le dice, para ahora tienes que echarle un poquito de no sé qué y tal. Y yo, pero... No, esto está mal.
+
+Haced lo que queráis. Y le da como una salsa, como si fuera café mezclado con especias. No era café, pero tenía pinta de café.
+
+Y echa un poquito. Y yo lo pruebo. Y es como, se me queda en la... Entre los labios y la lengua.
+
+Está tan seco y tan salado, que no soy capaz de tragármelo. Y tampoco lo puedo escupir porque está como todo enganchado ahí. Y voy corriendo a la cocina de abajo.
+
+Todo esto era en las escaleras del... Y voy corriendo a la cocina de abajo, que es la cocina de casa de Joel. Intento como limpiarme. Y está Joel por ahí.
+
+Y dice, tío, ¿qué haces? No sé qué... Bueno, ya me había limpiado nada aquí que he probado esto. Y salimos y íbamos a una mesa súper larga, que están sentadas toda la peña de esa plaza. La peña chunga.
+
+Y estaba con Joel. Y Joel estaba al inicio de la... Cuando me integré o conseguí entrar tenía la oportunidad de decirle que que me conocen por Adriana y que antes viví en Milano. O sea, que me conocen por Adri.
+
+Y estábamos comiendo, él era simpático, iba todo bien. Vi alguna de las que del principio... 
+
+No sé. Y el sueño acabó ahí en la mesa como y ya estábamos todos comiendo. Y yo preocupado por que se descubran las mentiras pensando en en los cabrones que me habían inducido a las preguntas.
+
+Porque no sé. No sé qué sentido tenía mentir. Pero me obligaron.
