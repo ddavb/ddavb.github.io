@@ -2,9 +2,7 @@
  
    - [**2025-05 intruso (nopic-checkaudio)**](./U1-archivo-sueños/2025-05-08_intruso.md)
 
-   - [**2025-05 mansión y castellón (nopic-checkaudio)**](./U1-archivo-sueños/2025-05-05_mansión-castellón.md)
-
-   --
+   - [**2025-05 mansión y castellón (to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-05-05_mansión-castellón.md)
 
    - [**2025/04 Pizza a la barbacoa en tabla de ping pong (no pic)**](./U1-archivo-sueños/2025-04-25_Pizza_pinpong_add.md)
 
