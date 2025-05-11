@@ -24,9 +24,9 @@
 
    - te -- [2025-02 **(to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-02-09.md)
 
-   - te -- [2025-02 título **(to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-02-01.md)
+   - te -- [2025-02 título **(to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-02-01_título.md)
 
-   - te -- [2025-01 **(to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-01-25.md)
+   - te -- [2025-01 [ZA] y gatos **(to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-01-25_[ZA]_y_gatos.md)
 
    - te -- [2025-01 **(to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-01-23.md)
 
