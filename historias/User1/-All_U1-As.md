@@ -1,6 +1,6 @@
 # SUEÑOS por corregir
  
-   - [**2025-05 intruso (nopic-checkaudio)**](./U1-archivo-sueños/2025-05-08_intruso.md)
+   - [**2025-05 intruso (nopic)**](./U1-archivo-sueños/2025-05-08_intruso.md)
 
    - [**2025-05 mansión y castellón (to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-05-05_mansión-castellón.md)
 
