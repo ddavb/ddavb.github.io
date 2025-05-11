@@ -24,7 +24,7 @@
 
    - te -- [2025-02 **(to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-02-09.md)
 
-   - te -- [2025-02 **(to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-02-01.md)
+   - te -- [2025-02 título **(to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-02-01.md)
 
    - te -- [2025-01 **(to edit + nopic-checkaudio)**](./U1-archivo-sueños/2025-01-25.md)
 
