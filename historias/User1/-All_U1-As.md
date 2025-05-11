@@ -16,7 +16,25 @@
 
    - [**2025/03 Ultrasueño**](./U1-archivo-sueños/2025-03-30-Ultrasueño.md)
 
+   - te -- [2025-03-29 S-rescatado]()
+
+   - te -- [2025-03-14 S-rescatado]()
+
+   - te -- [2025-02-13 S-rescatado]()
+
+   - te -- [2025-02-09 S-rescatado]()
+
+   - te -- [2025-02-01 S-rescatado]()
+
+   - te -- [2025-01-25 S-rescatado]()
+
+   - te -- [2025-01-23 S-rescatado]()
+
+   - te -- [2025-01-19 S-rescatado]()
+
    - [2025-01 Ludwig Band (no pic)](./U1-archivo-sueños/2025-01-14_Ludwig_Band.md)
+
+   - te -- [2025-01-07 S-rescatado]()
 
    - [2024/12 Huída](./U1-archivo-sueños/2024-12-09_Huída.md)
 
@@ -31,6 +49,12 @@
    - [2024/10 Peñismal](./U1-archivo-sueños/2024-10-22_Peñismal.md)
 
    - [2024/10 fragmento iaio](./U1-archivo-sueños/2024-10-10_fragmento-iaio.md)
+
+   - te -- [2024-10-09 S-rescatado]()
+
+   - te -- [2024-10-03 S-rescatado]()
+
+   - te -- [2024-09-27 S-rescatado]()
 
    - [**2024/09 fragmento China**](./U1-archivo-sueños/2024-09-23_fragmento_china.md)
 
