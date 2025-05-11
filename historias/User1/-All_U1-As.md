@@ -82,6 +82,6 @@
 
    - [202x - Una partida confusa](./U1-archivo-sueños/202x_Una_partida_confusa.md)
 
-# SUEÑOS por revisar el audio
+<!-- # SUEÑOS por revisar el audio
 
-   - [to do U1-As](./U1-archivo-sueños/-to-edit_U1-As.md)
+   - [to do U1-As](./U1-archivo-sueños/-to-edit_U1-As.md) -->
