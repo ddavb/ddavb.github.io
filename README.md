@@ -1,8 +1,5 @@
 # ddavb.github.io
 
-- Archivo anónimo de sueños.
-
-
 # AGRUPACIONES:
 
 
